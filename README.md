@@ -6,7 +6,7 @@
   <td align=center><b>👉👉👉从【微信】或【扫码】到此页面的，请点击右上角三个点，选择在浏览器中打开！<b/>
   </tr>
     <tr>
-    <td align=center>请点击进入动态网址<br/>
+    <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
       <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit">动态网址1</a>
       <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit">动态网址2</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit">动态网址3</a>
@@ -20,6 +20,9 @@
       <a href="https://raw.githubusercontent.com/ogate/up/master/ogate.apk">https://git.io/ogatea</a><br/>
     <b/>◆微信中如无响应，请复制以下链接地址到非国产浏览器中打开◆<br/>
     </td>
+  </tr>
+  <tr>
+    <td align=center><img src="https://github.com/gyhhx/image/blob/master/ogate-c.JPG" /></td>
   </tr>
   <tr>
     <td align=center>
