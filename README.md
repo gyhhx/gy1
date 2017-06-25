@@ -7,12 +7,12 @@
   </tr>
     <tr>
     <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
-      <a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=gygit">动态网址1</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit">动态网址2</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit">动态网址3</a><br/>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit">动态网址4</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gygit">动态网址5</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit">动态网址6</a><br/>
+      <b><a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=gygit">动态网址1</a>
+      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit">动态网址2</a>
+      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit">动态网址3</a><br/>
+      <b><a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit">动态网址4</a>
+     <b> <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gygit">动态网址5</a>
+     <b> <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit">动态网址6</a><br/>
     </td>
   </tr>
   <tr>
