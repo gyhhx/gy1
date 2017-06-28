@@ -13,12 +13,12 @@
   </tr>
     <tr>
     <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
-      <b><a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=gy">动态网址1</a>
-      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">动态网址2</a>
-      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">动态网址3</a><br/>
-      <b><a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy">动态网址4</a>
-     <b> <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy">动态网址5</a>
-     <b> <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy">动态网址6</a><br/>
+      <b><a href="https://cdn.rawgit.com/ogate/up/master/oGates.htm?from=gy">👉翻墙网址1</a><br/>
+      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">👉翻墙网址2</a><br/>
+      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">👉翻墙网址3</a><br/>
+      <b><a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy">👉翻墙网址4</a><br/>
+     <b> <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy">👉翻墙网址5</a><br/>
+     <b> <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy">👉翻墙网址6</a><br/><br/>
     </td>
   </tr>
   <tr>
@@ -30,13 +30,5 @@
   </tr>
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image/blob/master/ogate-c.JPG" /></td>
-  </tr>
-  <tr>
-    <td align=center>
-大陆用户无需翻墙，就可了解全球精粹资源<br/>
-《网门》适合手机、平板、电脑等所有网络终端用户<br/>
-只需记住固定网址，或保存在手机或电脑浏览器收藏夹中<br/>
-即可一键突破网络封锁，是稳定长效的安全网址<br/>
-</td>
   </tr>
 </table>    
