@@ -13,8 +13,8 @@
   </tr>
     <tr>
     <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
-      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">👉翻墙网址1</a><br/>
-      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">👉翻墙网址2</a><br/>
+      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">👉翻墙网址1</a><br/>
+      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">👉翻墙网址2</a><br/>
       <b><a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy">👉翻墙网址3</a><br/>
      <b> <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy">👉翻墙网址4</a><br/>
      <b> <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy">👉翻墙网址5</a><br/><br/>
