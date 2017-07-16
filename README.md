@@ -14,13 +14,14 @@
       <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogST.aspx?from=gy"><b>〓〓〓三退大潮〓〓〓<br/></a>
       </td>
   </tr>
-    <tr>
-    <td align=center>↓↓↓↓↓请点击进入动态网址↓↓↓↓↓<br/>
-      <b><a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy">👉翻墙网址1</a><br/>
-      <b><a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy">👉翻墙网址2</a><br/>
-      <b><a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy">👉翻墙网址3</a><br/>
-     <b> <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy">👉翻墙网址4</a><br/>
-     <b> <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy">👉翻墙网址5</a><br/><br/>
+   <tr>
+      <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>
+      <a href="https://rawgit.com/onorm/up/master/oGate.htm?from=gy"><b>👉动态网址1</a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy"><b>👉动态网址2</a>
+      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy"><b>👉动态网址3<br/></a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy"><b>👉动态网址4</a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy"><b>👉动态网址5</a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy"><b>👉动态网址6</a>
     </td>
   </tr>
   <tr>
