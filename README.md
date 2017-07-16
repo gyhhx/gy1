@@ -15,13 +15,13 @@
       </td>
   </tr>
    <tr>
-      <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>
-      <a href="https://rawgit.com/onorm/up/master/oGate.htm?from=gy"><b>👉动态网址1</a>
-      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gy"><b>👉动态网址2</a>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?from=gy"><b>👉动态网址3<br/></a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gy"><b>👉动态网址4</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gy"><b>👉动态网址5</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gy"><b>👉动态网址6</a>
+      <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>
+      <a href="https://rawgit.com/onorm/up/master/oGate.htm?from=gygit1"><b>👉动态网址1</b><br/></a>
+      <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址2</b><br/></a>
+      <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit3"><b>👉动态网址3</b><br/></a>
+      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/oGate.htm?from=gygit4"><b>👉动态网址4</b><br/></a>
+      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?from=gygit5"><b>👉动态网址5</b><br/></a>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit6"><b>👉动态网址6</b><br/></a>
     </td>
   </tr>
   <tr>
