@@ -10,8 +10,8 @@
   </tr>
    <tr>
   <td align=center>
-  <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?c816846_2_1&from=gy">视频短片：为了您的未来，请您加入</a><br/>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/oGate.htm?ogST.aspx?from=gy"><b>〓〓〓三退大潮〓〓〓<br/></a>
+  <a href="https://rawgit.com/onorm/up/master/oGate.htm??c816846_2_1&from=gygit1">视频短片：为了您的未来，请您加入</a><br/>
+      <a href="https://rawgit.com/onorm/up/master/oGate.htm?ogST.aspx?from=gygit1"><b>〓〓〓三退大潮〓〓〓<br/></a>
       </td>
   </tr>
    <tr>
