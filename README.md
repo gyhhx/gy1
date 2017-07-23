@@ -109,7 +109,7 @@
    <tr>
     <td align=center>
       下载安卓版，更快更方便  <br/> 
- <a href="http://t.cn/RKFCfWe"><b>网门 安卓App</a></b><br/>
+ <a href="http://t.cn/RKFCfWF"><b>网门 安卓App</a></b><br/>
     </td>
   </tr>
 </table>    
