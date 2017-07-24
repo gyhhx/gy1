@@ -26,12 +26,12 @@
   </tr>
    <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827120&from=gyyw">◆两大重要场合 习王着装一致 与他人有别</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827163&from=gyyw">◆美国有能力刺杀金正恩 为何没动手</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827116&from=gyyw">◆北戴河会议前 王岐山6次露面被指释四大信号</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htmc827168&from=gyyw">◆【禁闻】反迫害18周年 美国政要声援法轮功</a><br/>
 </td>
    </tr>
  <tr>
