@@ -31,7 +31,7 @@
    </tr>
  <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htmc827168&from=gyyw">◆【禁闻】反迫害18周年 美国政要声援法轮功</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827168&from=gyyw">◆【禁闻】反迫害18周年 美国政要声援法轮功</a><br/>
 </td>
    </tr>
  <tr>
