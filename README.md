@@ -64,7 +64,7 @@
   </tr>    
  <tr>
     <td align=center>    
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆石涛●今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
@@ -80,8 +80,27 @@
       <td align=center>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事热点的脉动</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+   </tr>
+   <tr>
+      <td align=center>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+   </tr>
     <tr>
-      <td align=center>↓↓↓↓↓更多精彩，请点击进入动态网址↓↓↓↓↓<br/>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
+  </tr>
+    <tr>
+      <td align=center>
       <a href="https://rawgit.com/onorm/up/master/oGate.htm?from=gygit1"><b>👉动态网址1</b><br/</a>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址2</b><br/</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit3"><b>👉动态网址3</b><br/></a>
@@ -92,8 +111,8 @@
   </tr>
   <tr>
   <td align=center>
-  <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816846_2_1&from=gygit2">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="https://s3.amazonaws.com/ogate/oGate.htm?ogST.aspx&from=gygit2"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
+  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gygit5">视频短片：为了您的未来，请您加入三退大潮</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gygit5"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
       </td>
   </tr>
   <tr>
@@ -108,8 +127,8 @@
   </tr>
    <tr>
     <td align=center>
-      下载安卓版，更快更方便  <br/> 
- <a href="http://t.cn/RKFCfWF"><b>网门 安卓App</a></b><br/>
+      一键翻墙 安卓APP 永久免费 不限时长<br/> 
+ <a href="http://t.cn/R9P5YBM">网门 安卓App</a><br/>
     </td>
   </tr>
 </table>    
