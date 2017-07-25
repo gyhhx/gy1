@@ -16,12 +16,12 @@
   </tr>
 <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827329&from=gyyw">◆孙政才被抓 传涉福建首富黄如论案</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827297&from=gyyw">◆孙政才被抓 传涉福建首富黄如论案</a><br/>
 </td>
   </tr>
   <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827180&from=gyyw">◆胡温当年欲办不能的大法官终落马</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827329&from=gyyw">◆胡温当年欲办不能的大法官终落马</a><br/>
 </td>
   </tr>
    <tr>
