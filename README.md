@@ -12,52 +12,52 @@
 
 <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827564&from=gyyw">◆中印不断部署边境 印军强硬喊话拟全面战争</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827564&from=gyyw">◆中印不断部署边境 印军强硬喊话拟全面战争</a><br/>
 </td>
   </tr>
   <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827602&from=gyyw">◆“解放前后”等成禁用词 背后藏真相</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827602&from=gyyw">◆“解放前后”等成禁用词 背后藏真相</a><br/>
 </td>
   </tr>
   <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827494&from=gyyw">◆何挺供孙政才为〝登基〞留种养情妇 习闻报大怒</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827494&from=gyyw">◆何挺供孙政才为〝登基〞留种养情妇 习闻报大怒</a><br/>
  </td>
   </tr>
    <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827511&from=gyyw">◆中共前主席蹊跷死亡内幕 传被江泽民曾庆红暗杀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827511&from=gyyw">◆中共前主席蹊跷死亡内幕 传被江泽民曾庆红暗杀</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827570&from=gyyw">◆孙政才下台与十九大王歧山连任</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827570&from=gyyw">◆孙政才下台与十九大王歧山连任</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827505&from=gyyw">◆一周大事解读：习王敏感动作 逾十高官被查处</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827505&from=gyyw">◆一周大事解读：习王敏感动作 逾十高官被查处</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827497&from=gyyw">◆政治局会议后 上海急表态稳定房地产引关注</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827497&from=gyyw">◆政治局会议后 上海急表态稳定房地产引关注</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827476&from=gyyw">◆孙政才最后行程曝光：未入京西宾馆 黑衣人机场抓人</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827476&from=gyyw">◆孙政才最后行程曝光：未入京西宾馆 黑衣人机场抓人</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827591&from=gyyw">◆石涛：习近平与江泽民彻底翻脸</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827591&from=gyyw">◆石涛：习近平与江泽民彻底翻脸</a><br/>
 </td>
    </tr>
  <tr>
 <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c827472&from=gyyw">◆【禁闻】中共政治局会议 缘何再批金融乱象？</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827472&from=gyyw">◆【禁闻】中共政治局会议 缘何再批金融乱象？</a><br/>
 </td>
    </tr> 
     <tr>
@@ -66,25 +66,25 @@
     
  <tr>
     <td align=center>    
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href=https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
       <td align=center>
@@ -92,11 +92,11 @@
    </tr>
    <tr>
       <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
