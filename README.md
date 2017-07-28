@@ -66,37 +66,37 @@
     
  <tr>
     <td align=center>    
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
     <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://rawgit.com/onorm/up/master/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
