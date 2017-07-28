@@ -12,7 +12,7 @@
 
 <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827564&from=gyyw">◆中印不断部署边境 印军强硬喊话拟全面战争</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827636&from=gyyw">◆习要19大宣示〝举什么旗、走什么路〞 释何信号？</a><br/>
 </td>
   </tr>
   <tr>
@@ -27,7 +27,7 @@
   </tr>
    <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827511&from=gyyw">◆中共前主席蹊跷死亡内幕 传被江泽民曾庆红暗杀</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827628&from=gyyw">◆上海再现人事变动 应勇大秘升任副市长 陈寅被免</a><br/>
 </td>
    </tr>
  <tr>
@@ -37,7 +37,7 @@
    </tr>
  <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827505&from=gyyw">◆一周大事解读：习王敏感动作 逾十高官被查处</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827642&from=gyyw">◆不要接班人 习近平重设权力规则 评：还有大戏将上演</a><br/>
 </td>
    </tr>
  <tr>
