@@ -133,4 +133,7 @@
  <a href="http://t.cn/RKFCMFf">网门 安卓App</a><br/>
     </td>
   </tr>
+  <tr>
+    <td align=center><img src="https://cloud.githubusercontent.com/assets/11880933/15631437/70d0a74e-259d-11e6-946f-6237b4b657bd.jpg"/></td>
+  </tr>
 </table>    
