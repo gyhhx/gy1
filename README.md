@@ -12,7 +12,7 @@
 
 <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827636&from=gyyw">◆习要19大宣示〝举什么旗、走什么路〞 释何信号？</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c827696&from=gyyw">◆【今日点击】习近平动刀〝灰犀牛〞 万达海航首当其冲</a><br/>
 </td>
   </tr>
   <tr>
