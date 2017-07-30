@@ -113,8 +113,8 @@
   </tr>
   <tr>
   <td align=center>
-  <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816846_2_1&from=gygitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="https://s3.amazonaws.com/ogate/oGate.htm?ogST.aspx&from=gygitST"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
+  <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
+      <a href="https://s3.amazonaws.com/ogate/oGate.htm?ogST.aspx&from=gitST"><b>〓那年我们没有选择，此刻却是我们的自由〓<br/></a>
       </td>
   </tr>
   <tr>
