@@ -7,7 +7,7 @@
   </td>
   </tr>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy2-wx2.png" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy1-wx2.png" /></td>
   </tr>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
