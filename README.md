@@ -14,7 +14,7 @@
   </tr>
  <tr>
 <td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828495&from=gyyw">◆独家：十九大中共常委和高层人事任免名单</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828495&from=gityw">◆独家：十九大中共常委和高层人事任免名单</a><br/>
 </td>
    </tr>
    <tr>
