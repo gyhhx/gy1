@@ -67,44 +67,44 @@
   </tr>
     
  <tr>
-    <td align=center>    
+   <td align=left> 
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816850&from=gityw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
-    <td align=center>
+   <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816857&from=gityw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
-    <td align=center>
+  <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816860&from=gityw">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
-      <td align=center>
+     <td align=left>
 <a href=https://s3.amazonaws.com/ogate/oGate.htm?c816855&from=gityw ">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
-      <td align=center>
+      <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816851&from=gityw ">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
-      <td align=center>
+     <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816852&from=gityw">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
-      <td align=center>
+      <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816694&from=gityw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
-      <td align=center>
+    <td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c816650&from=gityw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
   </tr>
     <tr>
-      <td align=center>
+      <td align=left>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址</b><br/</a>
       <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址</b><br/</a>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=gygit3"><b>👉动态网址</b><br/></a>
