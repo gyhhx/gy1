@@ -13,53 +13,53 @@
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
  <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828572&from=gityw">◆开战信号强烈 网传HQ16导弹入藏应对印军苏式战机</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828735&from=gityw">◆中共军方发言人离奇退役 罕见告别体制〝自主择业〞</a><br/>
 </td>
    </tr>
    <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828597&from=gityw">◆万达从国内〝卖〞到国外 放售近20亿澳洲项目</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828732&from=gityw">◆余远辉夫妇攀上令计划一家 其妻被抓后险崩溃</a><br/>
 </td>
    </tr>
 <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828605&from=gityw">◆广东纪检再清内鬼 敲王晓玲震曾庆红</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828678&from=gityw">◆中共发出开战信号 印美联合宣布〝准备战争〞</a><br/>
 </td>
   </tr>
   <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828570&from=gityw">◆北京闻风：习近平力破七上八下 王岐山留任常委</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828667&from=gityw">◆美媒：北戴河是习集权最后一关 受阻击者入常可能更大</a><br/>
  </td>
   </tr>
    <tr>
-<td align=center>
+<td align=left>
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c828564&from=gityw">◆中印双方调派军备 北戴河会议决定是战是和？</a><br/>
 </td>
    </tr>
  <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828568&from=gityw">◆【禁闻】公安部高官去职 剑指曾庆红？</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828698&from=gityw">◆石涛：北戴河会议 王岐山留任无悬念 老人干政无机会</a><br/>
 </td>
    </tr>
  <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828567&from=gityw">◆王岐山有望破例入常？外媒热议</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828540&from=gityw">◆一位坚持信仰的辽宁女人的艰难生子路</a><br/>
 </td>
    </tr>
  <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828513&from=gityw">◆【热点透视】中共为何陷入四面楚歌的境地</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828701&from=gityw">◆章天亮：对郭文贵爆料的态度和预测</a><br/>
 </td>
    </tr>
     <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828467&from=gityw">◆政要云集北戴河 19大前再传取消常委制</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828699&from=gityw">◆九寨沟强震先有异象 北京上空出现奇光</a><br/>
 </td>
   </tr>
  <tr>
-<td align=center>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_965&from=gityw">◆〝反美斗士〞移民美国 司马南说出〝心里话〞</a><br/>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828691&from=gityw">◆朝鲜若执意推进核计划 美国或动武</a><br/>
 </td>
    </tr> 
     <tr>
