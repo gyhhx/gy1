@@ -39,7 +39,7 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828827&from=gityw">◆前广东高官落马 被指是收巨额现金神秘人</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c828897&from=gityw">◆北戴河会传出矛盾消息 暗流涌动？</a><br/>
 </td>
    </tr>
  <tr>
