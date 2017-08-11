@@ -105,7 +105,7 @@
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
   </tr>
     <tr>
-      <td align=left>
+      <td align=center>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址</b></a>
       <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址</b></a>
       <a href="https://s3.us-east-2.amazonaws.com/ogateh/oGate.htm?from=gygit3"><b>👉动态网址</b><br/></a>
