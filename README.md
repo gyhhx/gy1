@@ -132,7 +132,7 @@
    <tr>
     <td align=center>
      <b>一键翻墙 安卓APP 永久免费 不限时长</b><br/> 
- <a href="http://t.cn/R9CXNjb">网门 安卓App</a><br/>
+ <a href="http://t.cn/R9BovJx">网门 安卓App</a><br/>
     </td>
     </tr>
     
