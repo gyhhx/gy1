@@ -14,62 +14,39 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829527&from=gityw">◆美军最高指挥突访中朝边境 商军事合作被指极罕见</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829621&from=gityw">◆中共审查黑手伸向学术界 剑桥大学屈膝</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829520&from=gityw">◆汪洋出访有玄机 港媒：入常成定局或掌人大</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829625&from=gityw">◆北京发限制境外投资通知 王健林或再受影响</a><br/>
 </td>
   </tr>
      <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829545&from=gityw">◆北戴河会期状况迭出 暗流涌动</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829620&from=gityw">◆联通混改爆乌龙 政府改革遇阻陷尴尬</a><br/>
 </td>
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829532&from=gityw">◆【热点透视】中国向左转加剧国内外危机</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829612&from=gityw">◆金正恩“造神”失败 更多朝鲜人不再尊重他</a><br/>
 </td>
    </tr>
-  <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_988&from=gityw">◆毛泽东：联日打蒋可获暴利 我不怕当民族叛徒</a><br/>
- </td>
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829377&from=gityw">◆俄媒：中印问题9月或是关键</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829610&from=gityw">◆搬掉江泽民语录牌 陆军司令或爆冷升军委副主席</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829572&from=gityw">◆柬共屠杀数十万华侨内幕：中共默许 还把求救信交给杀人者</a><br/>
-</td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829529&from=gityw">◆中国企业大批撤离朝鲜 数百车辆排长队过海关</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829605&from=gityw">◆90后女博士挂职副县长 折射中共官场秘密</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829434&from=gityw">◆石涛：习近平的北戴河会议 封杀结束〝老人干政〞</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829571&from=gityw">◆周恩来初恋情人 中国首位留法女博士自杀内幕</a><br/>
-</td>
-   </tr> 
-   <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829564&from=gityw">◆安迪：看华春莹演绎党文化</a><br/>
-</td>
-   </tr>
-    <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_982&from=gityw">◆赵紫阳身陷囹圄时天天收听〝敌台〞</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829619&from=gityw">◆安徽4死劫杀案嫌犯 22年后漂白成知名作家</a><br/>
 </td>
    </tr>
     <tr>
