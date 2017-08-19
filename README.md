@@ -12,7 +12,19 @@
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
-  <a href="https://s3.amazonaws.com/ogate/oGate.htm?c829620&from=gityw">◆联通混改爆乌龙 政府改革遇阻陷尴尬</a><br/>
+ <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829621&from=gityw">◆中共审查黑手伸向学术界 剑桥大学屈膝</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829625&from=gityw">◆北京发限制境外投资通知 王健林或再受影响</a><br/>
+</td>
+  </tr>
+     <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829620&from=gityw">◆联通混改爆乌龙 政府改革遇阻陷尴尬</a><br/>
 </td>
   </tr>
    <tr>
