@@ -12,19 +12,7 @@
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
-   <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829621&from=gityw">◆中共审查黑手伸向学术界 剑桥大学屈膝</a><br/>
-</td>
-   </tr>
-<tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829625&from=gityw">◆北京发限制境外投资通知 王健林或再受影响</a><br/>
-</td>
-  </tr>
-     <tr>
-<td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829620&from=gityw">◆联通混改爆乌龙 政府改革遇阻陷尴尬</a><br/>
+  <a href="https://s3.amazonaws.com/ogate/oGate.htm?c829620&from=gityw">◆联通混改爆乌龙 政府改革遇阻陷尴尬</a><br/>
 </td>
   </tr>
    <tr>
@@ -49,6 +37,29 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c829619&from=gityw">◆安徽4死劫杀案嫌犯 22年后漂白成知名作家</a><br/>
 </td>
    </tr>
+ <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_994&from=gityw">◆【禁闻・百年红祸】梁羽生金庸之父 惨死镇反运动</a><br/>
+</td>
+   </tr> 
+   <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829602&from=gityw">◆透析华人频遭遣返现象</a><br/>
+</td>
+   </tr>
+    <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829599&from=gityw">◆中共传媒“大佬”落马 刘北宪非首例</a><br/>
+</td>
+   </tr>
+     <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_988&from=gityw">◆毛泽东：联日打蒋可获暴利 我不怕当民族叛徒</a><br/>
+ </td>
+   <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829572&from=gityw">◆柬共屠杀数十万华侨内幕：中共默许 还把求救信交给杀人者</a><br/>
+</td>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
