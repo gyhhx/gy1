@@ -147,23 +147,6 @@
       </td>
   </tr>
   <tr>
-    <td align=center>
-◆推荐使用谷歌或火狐浏览器<br/>
-<a href="https://chrome.cn.uptodown.com/android">谷歌安卓版、</a>
-<a href="https://google-chrome.cn.uptodown.com/windows">win版、</a>
-<a href="https://chrome.cn.uptodown.com/iphone">苹果版、</a>
-<a href="https://google-chrome.cn.uptodown.com/mac">Mac版</a><br/>
-◆国产浏览器干扰浏览，请卸载<br/>
-</td>
-  </tr>
-   <tr>
-    <td align=center>
-     <b>一键翻墙 安卓APP 永久免费 不限时长</b><br/> 
- <a href="http://t.cn/R9BovJx">网门 安卓App</a><br/>
-    </td>
-    </tr>
-    
-  <tr>
     <td align=center><img src="https://cloud.githubusercontent.com/assets/11880933/15631437/70d0a74e-259d-11e6-946f-6237b4b657bd.jpg"/></td>
   </tr>
 </table>    
