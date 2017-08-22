@@ -9,15 +9,15 @@
  <tr>
     <td align=left>
 <b>谷歌浏览器 下载<br/>
-<a href="http://t.cn/RCMTHNv">👉谷歌电脑版（绿色免安装）</a><br/>
-<a href="http://t.cn/RCMTF83">👉谷歌手机版（安卓）</a>
+<a href="http://t.cn/RCSpFgG">👉谷歌电脑版（绿色免安装）</a><br/>
+<a href="http://t.cn/RCSp1nX">👉谷歌手机版（安卓）</a>
 </td>
   </tr>
   <tr>
     <td align=left>
 <b>火狐浏览器 下载<br/>
-<a href="http://t.cn/RCMHysU">👉火狐电脑版</a><br/>
-<a href="http://t.cn/RCMHf8Y">👉火狐手机版（安卓）</a>
+<a href="http://t.cn/RCS0P53">👉火狐电脑版</a><br/>
+<a href="http://t.cn/RCSpgCO">👉火狐手机版（安卓）</a>
 </td>
   </tr>
    <tr>
