@@ -74,6 +74,21 @@
 <a href="https://s3.amazonaws.com/ogate/oGate.htm?c829898&from=gityw">◆铁岭书记向辽宁省委书记买官细节被曝光</a><br/>
 </td>
    </tr>
+    <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1006&from=gityw">◆网友揭IS鼻祖在中国 〝革命英雄〞方志敏绑票罪恶曝光</a><br/>
+ </td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c829980&from=gityw">◆盘点中共落马官员奇葩事 出事前纷纷前求助〝大师〞</a><br/>
+</td>
+ </tr>
+ <tr>
+<td align=left>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c816833_2_1010&from=gityw">◆揭秘：林立果选的〝妃子〞拒嫁毛远新内幕</a><br/>
+</td>
+   </tr>
   <tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
