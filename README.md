@@ -119,7 +119,7 @@
       <td align=center>
       <a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?from=gygit6"><b>👉动态网址</b></a><br/>
       <a href="https://s3.amazonaws.com/ogate/oGate.htm?from=gygit2"><b>👉动态网址</b></a><br/>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址 (请点屏幕底部“访问原网页”）</b></a><br/>
+      <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?from=gygit1"><b>👉动态网址 (微信中请点屏幕底部“访问原网页”）</b></a><br/>
     </td>
   </tr>
   <tr>
