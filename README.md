@@ -138,15 +138,15 @@
    <tr>
     <td align=left>
 <b>谷歌浏览器 下载<br/>
-<a href="http://t.cn/RCSpFgG">👉谷歌电脑版（绿色免安装）</a><br/>
-<a href="http://t.cn/RCSp1nX">👉谷歌手机版（安卓）</a>
+<a href="http://uee.me/efvP">👉谷歌电脑版（绿色免安装）</a><br/>
+<a href="http://uee.me/efvV">👉谷歌手机版（安卓）</a>
 </td>
   </tr>
   <tr>
     <td align=left>
 <b>火狐浏览器 下载<br/>
 <a href="http://uee.me/efuQ">👉火狐电脑版</a><br/>
-<a href="http://t.cn/RCSpgCO">👉火狐手机版（安卓）</a>
+<a href="http://uee.me/efvB">👉火狐手机版（安卓）</a>
 </td>
   </tr>
    <tr>
