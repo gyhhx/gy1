@@ -145,7 +145,7 @@
   <tr>
     <td align=left>
 <b>火狐浏览器 下载<br/>
-<a href="http://t.cn/RCS0P53">👉火狐电脑版</a><br/>
+<a href="http://uee.me/efuQ">👉火狐电脑版</a><br/>
 <a href="http://t.cn/RCSpgCO">👉火狐手机版（安卓）</a>
 </td>
   </tr>
