@@ -17,7 +17,7 @@
   </tr>
 <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?830957&from=gityw">◆十九大后中国走向何方？港媒吁废常委选元首或总统</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c830957&from=gityw">◆十九大后中国走向何方？港媒吁废常委选元首或总统</a><br/>
 </td>
    </tr>
    <tr>
