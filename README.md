@@ -27,7 +27,7 @@
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c816857&from=gityw">◆文昭：房峰辉传被捕 中共政变模式是〝夺门之变〞、还是〝斧声烛影〞胜</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c816857_91_2&from=gityw">◆文昭：房峰辉传被捕 中共政变模式是〝夺门之变〞、还是〝斧声烛影〞胜</a><br/>
 </td>
   </tr>
    <tr>
