@@ -67,7 +67,7 @@
    </tr>
    <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c830972&from=gityw">◆任志强: 征房产税就是抢劫</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c831080&from=gityw">◆浅谈解体共产党与打倒共产党的区别</a><br/>
 </td>
   </tr> 
     <tr>
