@@ -9,7 +9,7 @@
    <tr>
     <td align=center>
  <b>网门　網門<br/>　安卓版 APP　已更新<br/>  ●一键翻墙<br/>  ●不限时长</b><br/> 
- <a href="http://t.cn/RCxtbOo">👉<b>点我下载</a><br/>
+ <a href="https://t.cn/Rp76JtG">👉<b>点我下载</a><br/>
     </td>
     </tr>
    <tr>
