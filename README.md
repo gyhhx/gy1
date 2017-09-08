@@ -57,7 +57,7 @@
    </tr> 
    <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c831340&from=gityw">十九大前敏感时刻 刘源等红二代现身挺习王</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c831340&from=gityw">◆十九大前敏感时刻 刘源等红二代现身挺习王</a><br/>
  </td>
  </tr>
 <tr>
@@ -67,7 +67,7 @@
    </tr>
    <tr>
 <td align=left>
-<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c816857_96_1&from=gityw">◆最高法院院长周强落选19大党代表，一个阴谋两个脑洞</a><br/>
+<a href="https://s3-eu-west-1.amazonaws.com/ogatei/oGate.htm?c816857_96_1&from=gityw">◆文昭：最高法院院长周强落选19大党代表，一个阴谋两个脑洞</a><br/>
 </td>
   </tr> 
     <tr>
