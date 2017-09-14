@@ -57,7 +57,7 @@
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.amazonaws.com/ogate/oGate.htm?c831825&from=gityw">◆习近平300多篇讲话公开 四个〝不惜代价〞仍是迷</a><br/>
+<a href="https://s3.amazonaws.com/ogate/oGate.htm?c832010&from=gityw">◆十九大前防兵变 习近平提前换将〝枪指挥党〞</a><br/>
 </td>
    </tr>
  <tr>
