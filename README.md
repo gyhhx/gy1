@@ -20,61 +20,60 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832837&from=gityw">◆郭文贵曝江绵恒孟建柱按需杀人换肾 制造马航事件</a><br/>
-</td>
-  </tr> 
-  <tr>
-<td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832855&from=gityw">◆班农密会王岐山谈了啥？ 法广：川普前顾问或洩内幕</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832909&from=gityw">◆祸起江泽民 朝鲜收买中共亲朝派研发核武</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832782&from=gityw">◆传习近平担心外交部搅局 急派核心小组〝陪伴〞王毅</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832894&from=gityw">◆腾讯微信承认搜集用户隐私并向政府提供</a><br/></td>
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832779&from=gityw">◆与江泽民曾庆红关系匪浅 瑞士要求海航澄清一切</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832891&from=gityw">◆张德江十九大出局 黄奇帆倒不倒？</a><br/>
  </td>
  </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832822&from=gityw">◆王岐山要“立足本届，一干到底”？</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832900&from=gityw">◆法媒：金正恩太平洋核试极度危险 氢弹或在日本上空爆炸</a><br/>
 </td>
    </tr> 
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816857_108_1&from=gityw">◆文昭：王岐山“绝世武功”寻前世；习近平“顶层设计”遇轮回！</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832890&from=gityw">◆中共十九大，还有哪些悬念待解？</a><br/></td>
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832794&from=gityw">◆分析：习近平整肃共青团有原因</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832887&from=gityw">◆习抓10多名最年轻“大老虎” 断江派后路</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832731&from=gityw">◆英《经济学人》智库报告：王岐山19大将连任常委</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832886&from=gityw">◆秦宜智成质监总局第七把手 或影响李源潮</a><br/></td>
    </tr>
- <tr>
+  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832780&from=gityw">◆厦门女一张44年前存折 曝出大陆银行业黑幕</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816712&from=gityw">◆“天安门自焚”追查报告</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1113&from=gityw">◆揭秘：周恩来感激3万日军精锐打内战</a><br/>
-</td>
-   </tr>
-    <tr>
-<td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832685&from=gityw">◆“十九大”的三大悬念</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832878&from=gityw">◆项俊波五大罪名不寻常 仅勾搭有夫之妇就达123人</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832658&from=gityw">◆消息人士：明年或修宪 习近平谋求三连任</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816833_2_1118&from=gityw">◆《蚕食美国》揭共产阴谋 关乎人类文明存续</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832914&from=gityw">◆神韵交响乐团韩国首度巡演成功 观众赞“神赐音乐” </a><br/>
 </td>
    </tr> 
+   <tr>
+<td align=left>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c832837&from=gityw">◆郭文贵曝江绵恒孟建柱按需杀人换肾 制造马航事件</a><br/></td>
+  </tr> 
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
@@ -126,8 +125,7 @@
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=gygit">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/oGate.htm?from=gygit">入口</a>
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?from=gygit">入口</a><br/>
-      微信如提示停止访问该网页，须<br/>
-      先点击右上角，选择浏览器打开<br/>
+      ■■■微信中请先点击右上角“...” 或 “三”　选择“在浏览器中打开”■■■<b><br/>
     </td>
   </tr>
   <tr>
