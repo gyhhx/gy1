@@ -1,6 +1,6 @@
 <table>
 <tr>
-  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate2.jpg" />
+  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/new1.jpg" />
   </td>
   </tr>
   <tr>
@@ -129,27 +129,13 @@
     </td>
   </tr>
   <tr>
-  <td align=center>
+  <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
   <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓君子不立危墙之下〓<br/></a>
       </td>
   </tr>
  <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/p-final.jpg" /></td>
-  </tr>
-   <tr>
-    <td align=left>
-<b>谷歌浏览器 下载<br/>
-<a href="http://t.cn/RCSpFgG">👉谷歌电脑版（绿色免安装）</a><br/>
-<a href="http://t.cn/RCSp1nX">👉谷歌手机版（安卓）</a>
-</td>
-  </tr>
-  <tr>
-    <td align=left>
-<b>火狐浏览器 下载<br/>
-<a href="http://t.cn/RCS0P53">👉火狐电脑版</a><br/>
-<a href="http://t.cn/RCSpgCO">👉火狐手机版（安卓）</a>
-</td>
   </tr>
    <tr>
     <td align=center><img src="https://raw.githubusercontent.com/oGate2/Up/master/oGate_640.jpg"/></td>
