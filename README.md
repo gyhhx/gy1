@@ -12,7 +12,7 @@
    <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="http://t.cn/Rpppwc6">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <a href="http://t.cn/R0JHHUU">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
   <tr>
@@ -134,7 +134,9 @@
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓君子不立危墙之下〓<br/></a>
       </td>
   </tr>
- 
+ <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/p-final.jpg" /></td>
+  </tr>
    <tr>
     <td align=left>
 <b>谷歌浏览器 下载<br/>
