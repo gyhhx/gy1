@@ -134,7 +134,7 @@
       </td>
   </tr>
  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/p-final.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/p-final1.jpg" /></td>
   </tr>
    <tr>
     <td align=center><img src="https://raw.githubusercontent.com/oGate2/Up/master/oGate_640.jpg"/></td>
