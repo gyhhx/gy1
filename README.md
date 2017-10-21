@@ -12,7 +12,7 @@
    <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="http://t.cn/ROW4833">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <a href="http://t.cn/RWyt8hi">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
   <tr>
