@@ -59,7 +59,7 @@
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835814&from=gityw">◆【禁闻】中共公布新中委 政治局委员过半未连任冷</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835814&from=gityw">◆【禁闻】中共公布新中委 政治局委员过半未连任</a><br/></td>
   </tr> 
  <tr>
 <td align=left>
