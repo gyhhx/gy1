@@ -24,50 +24,50 @@
   </tr>
 <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835957&from=gityw">◆栗战书料掌港澳 传不满梁振英闯习近平专机</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835957&from=gitlv">◆栗战书料掌港澳 传不满梁振英闯习近平专机</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835940&from=gityw">◆表情复杂 王岐山在任最后一天离开会场画面曝光</a><br/>
+<a href="http://wer.tv.inoma.lv/?c835940&from=gitlv">◆表情复杂 王岐山在任最后一天离开会场画面曝光</a><br/>
 </td>
    </tr> 
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835958&from=gityw">◆习引古诗：不要人夸颜色好 只留清气满乾坤引猜测</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835958&from=gitlv">◆习引古诗：不要人夸颜色好 只留清气满乾坤引猜测</a><br/></td>
   </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835938&from=gityw">◆名单异常 19大中委〝选举〞露馅洩激斗实情</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835938&from=gitlv">◆名单异常 19大中委〝选举〞露馅洩激斗实情</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835956&from=gityw">◆李源潮出局 民间希望他早点落马</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835956&from=gitlv">◆李源潮出局 民间希望他早点落马</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835949&from=gityw">◆应勇马兴瑞意外〝出局〞 李希李强或分掌上海广东</a><br/>
+<a href="http://wer.tv.inoma.lv/?c835949&from=gitlv">◆应勇马兴瑞意外〝出局〞 李希李强或分掌上海广东</a><br/>
 </td>
     <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835950&from=gityw">◆【禁闻】江泽民露面十九大 是荣是辱？</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835950&from=gitlv">◆【禁闻】江泽民露面十九大 是荣是辱？</a><br/></td>
  </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835939&from=gityw">◆长年迫害人权 曾庆红亲信郭声琨 传掌政法委</a><br/>
+<a href="http://wer.tv.inoma.lv/?c835939&from=gitlv">◆长年迫害人权 曾庆红亲信郭声琨 传掌政法委</a><br/>
 </td>
    </tr>
     <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835916&from=gityw">◆19大闭幕式央视再〝砍江〞 男服务员倒水用意明显</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835916&from=gitlv">◆19大闭幕式央视再〝砍江〞 男服务员倒水用意明显</a><br/></td>
   </tr> 
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835936&from=gityw">◆杨宁：十九大后需要直面的一大问题</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835936&from=gitlv">◆杨宁：十九大后需要直面的一大问题</a><br/></td>
    </tr> 
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816833_2_1217&from=gityw">◆【禁闻】中共96年 中华添一亿亡魂</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816833_2_1217&from=gitlv">◆【禁闻】中共96年 中华添一亿亡魂</a><br/>
 </td>
    </tr>
     <tr>
@@ -75,7 +75,7 @@
   </tr>
  <tr>
    <td align=left> 
-<a href="http://wer.tv.inoma.lv/?c816850&from=gityw">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816850&from=gitlv">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
@@ -85,27 +85,27 @@
   </tr>
   <tr>
   <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816860&from=gityw">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816860&from=gitlv">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816855&from=gityw">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816855&from=gitlv">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816851&from=gityw">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816851&from=gitlv">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
      <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816852&from=gityw">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816852&from=gitlv">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816694&from=gityw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816694&from=gitlv">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816650&from=gityw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816650&from=gitlv">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
@@ -126,8 +126,8 @@
   </tr>
   <tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
-  <a href="http://wweer.tv.inoma.lv/?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="http://w35er.tv.inoma.lv/?ogST.aspx&from=gitST"><b>〓君子不立危墙之下〓<br/></a>
+  <a href="http://wweer.tv.inoma.lv/?c816846_2_1&from=gitlvSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
+      <a href="http://w35er.tv.inoma.lv/?ogST.aspx&from=gitlvST"><b>〓君子不立危墙之下〓<br/></a>
       </td>
   </tr>
  <tr>
