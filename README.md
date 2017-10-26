@@ -20,7 +20,7 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c835923&from=gityw">◆常委出炉难掩权争激烈 习近平仍有跨不过的门槛</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835923&from=gitlv">◆常委出炉难掩权争激烈 习近平仍有跨不过的门槛</a><br/></td>
   </tr>
 <tr>
 <td align=left>
