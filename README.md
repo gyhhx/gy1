@@ -125,9 +125,10 @@
     </td>
   </tr>
   <tr>
+  <td align=center>
   <a href="http://wweer.tv.inoma.lv/?c816846_2_1&from=gitlvSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
       <a href="http://w35er.tv.inoma.lv/?ogST.aspx&from=gitlvST"><b>〓君子不立危墙之下〓<br/></a>
-      <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
+      <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
  <tr>
