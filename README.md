@@ -20,54 +20,54 @@
   </tr>
    <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835923&from=gitlv">◆常委出炉难掩权争激烈 习近平仍有跨不过的门槛</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836079&from=gitlv">◆胡春华〝失常〞一身轻？ 传19大期间〝玩自拍〞</a><br/></td>
   </tr>
 <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835957&from=gitlv">◆栗战书料掌港澳 传不满梁振英闯习近平专机</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836071&from=gitlv">◆7常委亮相罕见一幕 李克强快速超韩正跟进习近平</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835940&from=gitlv">◆表情复杂 王岐山在任最后一天离开会场画面曝光</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836074&from=gitlv">◆高层多部门大换血 传习近平钦点李强接任上海</a><br/>
 </td>
    </tr> 
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835958&from=gitlv">◆习引古诗：不要人夸颜色好 只留清气满乾坤引猜测</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836027&from=gitlv">◆红二代：王沪宁上位遇阻 习近平强拉入常</a><br/></td>
   </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835938&from=gitlv">◆名单异常 19大中委〝选举〞露馅洩激斗实情</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836069&from=gitlv">◆习江激战十九大 专家揭王岐山〝裸退〞内幕</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835956&from=gitlv">◆李源潮出局 民间希望他早点落马</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836068&from=gitlv">◆陆作家：习绝不是毛 否则〝他父亲在冥下也会骂他〞</a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835949&from=gitlv">◆应勇马兴瑞意外〝出局〞 李希李强或分掌上海广东</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836043&from=gitlv">◆【禁闻】中共十九大尘埃落定 鲍彤谈观感</a><br/>
 </td>
     <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835950&from=gitlv">◆【禁闻】江泽民露面十九大 是荣是辱？</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836031&from=gitlv">◆港媒曝胡春华未入常原因</a><br/></td>
  </tr>
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835939&from=gitlv">◆长年迫害人权 曾庆红亲信郭声琨 传掌政法委</a><br/>
+<a href="http://wer.tv.inoma.lv/?c836032&from=gitlv">◆日媒：反习势力反扑激烈 王岐山被迫让位</a><br/>
 </td>
    </tr>
     <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835916&from=gitlv">◆19大闭幕式央视再〝砍江〞 男服务员倒水用意明显</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c836026&from=gitlv">◆习家将位列19大主席团 却蹊跷未入中委</a><br/></td>
   </tr> 
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c835936&from=gitlv">◆杨宁：十九大后需要直面的一大问题</a><br/></td>
+<a href="http://wer.tv.inoma.lv/?c835856&from=gitlv">◆中共政治局“黑马”王晨是啥样的人</a><br/></td>
    </tr> 
  <tr>
 <td align=left>
-<a href="http://wer.tv.inoma.lv/?c816833_2_1217&from=gitlv">◆【禁闻】中共96年 中华添一亿亡魂</a><br/>
+<a href="http://wer.tv.inoma.lv/?c816833_2_1226&from=gitlv">◆林彪坠机中共高层一片欢呼 只有彭德怀悲鸣〝不活了〞</a><br/>
 </td>
    </tr>
     <tr>
