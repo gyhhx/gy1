@@ -20,7 +20,7 @@
   </tr>
    <tr>
 <td align=left>
-<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?c837226&from=gityw">◆习近平送上川普最想要大礼：对朝鲜陡下一记重击</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c837226&from=gityw">◆习近平送上川普最想要大礼：对朝鲜陡下一记重击</a><br/></td>
   </tr>
   <tr>
 <td align=left>
