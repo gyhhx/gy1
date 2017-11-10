@@ -59,7 +59,7 @@
  </tr>
  <tr>
 <td align=left>
-<a href="hhttps://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c837315&from=gityw">◆【翻墙必看】传内定王岐山当国家副主席</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c837315&from=gityw">◆【翻墙必看】传内定王岐山当国家副主席</a><br/>
 </td>
    </tr>
     <tr>
