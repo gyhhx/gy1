@@ -20,89 +20,89 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838296_1_4&from=gityw">◆《九评》编辑部：共产主义的终极目的 (二)</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838987&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (四)</a><br/></td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838296_1_5&from=gityw">◆《九评》编辑部：共产主义的终极目的 (三)</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838296_1_5&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (三)</a><br/>
 </td>
    </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838792&from=gityw">◆北京幼儿园虐童细节曝光 家长气得全身发抖</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838980&from=gyyw">◆什么信号？习近平写信 由江泽民的妹妹宣读</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838772&from=gityw">◆联手除掉金正恩？中美秘密讨论朝崩溃后如何处置核武</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838979&from=gyyw">◆揭秘：胡耀邦葬礼场面紧张 邓小平被骂〝也要死〞</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838831&from=gityw">◆周恩来三年酿数千万冤魂 下令将证据立即销毁不得外传</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838945&from=gyyw">◆北京为何封杀〝伟大领袖〞？海外党媒：习近平是个明白人</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838795&from=gityw">◆【禁闻】中共巨额援助津国 中国人民知道吗？</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838951&from=gyyw">◆【新闻看点】鲁炜升官两诀窍 失势落马一原因</a><br/>
 </td>
    </tr> 
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838714&from=gityw">◆鲁炜靠山是谁？ 传王岐山曾批其〝拿鸡毛当令箭〞</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838856&from=gyyw">◆阿谀吹捧惹祸 传习近平对李鸿忠存戒心对蔡奇失望</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816857_156_1&from=gityw">◆文昭：赵乐际拿“网络大总管”鲁炜开张，“老领导”危矣？</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838818&from=gyyw">◆蕃薯大侠 （视频） </a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838796&from=gityw">◆【禁闻】北京虐童案 网传军方涉入 猥亵幼童</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816850_164_7&from=gyyw">◆石涛：美对华政策超强硬〝华盛顿共识〞不复存在;北京红黄蓝幼儿园再涉虐童事件</a><br/>
 </td>
 </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838709&from=gityw">◆【翻墙必看】传蔡奇一表态被王沪宁否定</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838985&from=gyyw">◆聂树斌冤案细节曝光 5处签名被代签</a><br/></td>
   </tr> 
       <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838308_1_23&from=gityw">◆【新闻看点】鲁煒丑闻太多 还涉及政变集团</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838629&from=gyyw">◆杀了才能活 （视频）</a><br/></td>
  </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
  <tr>
    <td align=left> 
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816850&from=gityw">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816850&from=gyyw">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
    <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816857&from=gityw">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816857&from=gyyw">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
   <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816860&from=gityw">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816860&from=gyyw">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816855&from=gityw">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816855&from=gyyw">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816851&from=gityw">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816851&from=gyyw">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
      <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816852&from=gityw">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816852&from=gyyw">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816694&from=gityw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816694&from=gyyw">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816650&from=gityw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816650&from=gyyw">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
@@ -123,8 +123,8 @@
   </tr>
   <tr>
   <td align=center>
-  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gitSTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gitST"><b>〓君子不立危墙之下〓<br/></a>
+  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816846_2_1&from=gySTV">视频短片：为了您的未来，请您加入三退大潮</a><br/>
+      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gyST"><b>〓君子不立危墙之下〓<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
