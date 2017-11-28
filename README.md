@@ -11,8 +11,8 @@
   </tr>
    <tr>
     <td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="http://t.cn/Rjm9oph">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(2017年11月27日 更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
+ <a href="http://t.cn/RYMMGfn">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
   <tr>
@@ -20,52 +20,52 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838987&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (四)</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838296_1_7&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (5)</a><br/></td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838296_1_5&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (三)</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839270&from=gyyw">◆《九评》编辑部：共产主义的终极目的 (6)</a><br/>
 </td>
    </tr>
    <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838980&from=gyyw">◆什么信号？习近平写信 由江泽民的妹妹宣读</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839253&from=gyyw">◆军老虎张阳家中自杀 官媒痛批“两面人”</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838979&from=gyyw">◆揭秘：胡耀邦葬礼场面紧张 邓小平被骂〝也要死〞</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839247&from=gyyw">◆马晓红对朝走私细节曝光 核武材料装苹果箱</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838945&from=gyyw">◆北京为何封杀〝伟大领袖〞？海外党媒：习近平是个明白人</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839244&from=gyyw">◆北京〝排华〞内幕曝光 习近平：这把火是烧给谁看的？</a><br/></td>
  </tr>
    </tr>
  <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838951&from=gyyw">◆【新闻看点】鲁炜升官两诀窍 失势落马一原因</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839256&from=gyyw">◆传张阳上将接受调查时 借口换衣服上吊自杀</a><br/>
 </td>
    </tr> 
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838856&from=gyyw">◆阿谀吹捧惹祸 传习近平对李鸿忠存戒心对蔡奇失望</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839246&from=gyyw">◆宋涛访朝前 朝鲜杀害两名中国商人</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838818&from=gyyw">◆蕃薯大侠 （视频） </a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839249&from=gyyw">◆程晓容：驱逐〝无产阶级〞京城现〝党卫军〞？ </a><br/></td>
    </tr>
   <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816850_164_7&from=gyyw">◆石涛：美对华政策超强硬〝华盛顿共识〞不复存在;北京红黄蓝幼儿园再涉虐童事件</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839198&from=gyyw">◆美媒红黄蓝幼儿园外采访实录：便衣紧盯家长恐慌（视频）</a><br/>
 </td>
 </tr>
     <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838985&from=gyyw">◆聂树斌冤案细节曝光 5处签名被代签</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839200&from=gyyw">◆北京策划平壤政变？陈破空：中朝大桥关闭另有玄机</a><br/></td>
   </tr> 
       <tr>
 <td align=left>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c838629&from=gyyw">◆杀了才能活 （视频）</a><br/></td>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c839216&from=gyyw">◆新闻看点：文宣系风雨急 赵乐际打鲁炜意在沛公</a><br/></td>
  </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
@@ -127,9 +127,6 @@
       <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx&from=gyST"><b>〓君子不立危墙之下〓<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
-  </tr>
- <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/p-final1.jpg" /></td>
   </tr>
    <tr>
     <td align=center><img src="https://raw.githubusercontent.com/oGate2/Up/master/oGate_640.jpg"/></td>
