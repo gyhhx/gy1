@@ -14,7 +14,7 @@
   </tr>
       <tr>
 <td align=left>
-<a href="http://350884.sd.north.lii/show.htm?c921126&from=gy">◆习近平与江泽民真实关系揭秘</a><br/></td>
+<a href="http://350884.sd.north.li/show.htm?c921126&from=gy">◆习近平与江泽民真实关系揭秘</a><br/></td>
  </tr> 
       <tr>
 <td align=left>
