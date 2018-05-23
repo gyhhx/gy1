@@ -3,9 +3,6 @@
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/new1.jpg" />
   </td>
   </tr>
-  <tr>
-  <td align=center><img src="https://github.com/gyhhx/image/blob/master/wechat%20advise.jpg" /></td>
-  </tr>
    <tr>
     <td align=center>
  <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门  安卓版 APP下载(2018年05月 更新版）<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
