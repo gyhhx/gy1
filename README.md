@@ -59,7 +59,7 @@
   </tr> 
      <tr>
 <td align=left>
-<a href="http://2qwer84.sd.north.li/show.htm?c920849&from=gy">◆邓小平差点砍了毛泽东妻子脑袋内幕曝光/a><br/></td>
+<a href="http://2qwer84.sd.north.li/show.htm?c920849&from=gy">◆邓小平差点砍了毛泽东妻子脑袋内幕曝光</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
