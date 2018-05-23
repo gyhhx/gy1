@@ -4,7 +4,7 @@
   </td>
   </tr>
   <tr>
-  <td align=center><img src="https://github.com/gyy/image/blob/master/wechat%20advise.jpg" /></td>
+  <td align=center><img src="https://github.com/gyhhx/image/blob/master/wechat%20advise.jpg" /></td>
   </tr>
    <tr>
     <td align=center>
