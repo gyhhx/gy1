@@ -21,7 +21,7 @@
    </tr>
  <tr>
 <td align=left>
-<a href="http://239984.sd.north.li/show.htm?c841033&from=gy">◆网门授权独家播出影片 《BADASS 选美皇后》 </a><br/>
+<a href="http://239984.sd.north.li/show.htm?c841033&from=gy">◆网门授权·大陆独播·影片 《BADASS 选美皇后》 </a><br/>
 </td>
    </tr>
  <tr>
