@@ -49,7 +49,7 @@
 </tr>
      <tr>
 <td align=left>
-<a href="http://2qw8e4.sd.north.li/show.htm?c924672&from=gy">◆大陆街头现六四标语 要求结束专政</a><br/></td>
+<a href="http://2qw8e4.sd.north.li/show.htm?c924672&from=gy">◆大陆街头现六四标语 要求结束专政 （图）</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
