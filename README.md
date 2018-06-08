@@ -122,7 +122,7 @@
   <tr>
   <td align=center>
   <a href="http://235234.hv.saobruno.pt/?c816846_2_1&from=gy">视频短片：为了您的未来，请您加入三退大潮</a><br/>
-      <a href="235234.hv.saobruno.pt/?ogQuit.aspx&from=gy"><b>〓君子不立危墙之下〓<br/></a>
+      <a href="http://23522334.hv.saobruno.pt/?ogQuit.aspx&from=gy"><b>〓君子不立危墙之下〓<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
