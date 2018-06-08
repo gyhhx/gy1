@@ -4,7 +4,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="http://00384.hv.saobruno.pt/show.htm?c924709&from=gy">◆女研究生被轮奸 江泽民脱口一句震惊全球的话</a><br/></td>
+<a href="http://hv.saobruno.pt/show.htm?c924709&from=gy">◆女研究生被轮奸 江泽民脱口一句震惊全球的话</a><br/></td>
   </tr> 
       <tr>
 <td align=left>
