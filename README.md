@@ -4,89 +4,89 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c924709&from=gy">◆女研究生被轮奸 江泽民脱口一句震惊全球的话</a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c924709&from=gy">◆女研究生被轮奸 江泽民脱口一句震惊全球的话</a><br/></td>
   </tr> 
       <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925246&from=gy">◆李克强吉林视察出状况 贴身警卫急得不行（视频）</a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925246&from=gy">◆李克强吉林视察出状况 贴身警卫急得不行（视频）</a><br/></td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925035&from=gy">◆振奋！六四追轧学生队伍坦克二炮手 被追查出来了！</a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925035&from=gy">◆振奋！六四追轧学生队伍坦克二炮手 被追查出来了！</a><br/></td>
  </tr> 
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925568&from=gy">◆胡锦涛老婆背景曝光 江追杀他同学 还得逞了！</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/sf04.aspx?c925568&from=gy">◆胡锦涛老婆背景曝光 江追杀他同学 还得逞了！</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c841033&from=gy">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c841033&from=gy">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925229&from=gy">◆崔永元曝范冰冰内幕有多深 看了这小短文 就全看透了</a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925229&from=gy">◆崔永元曝范冰冰内幕有多深 看了这小短文 就全看透了</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925251&from=gy">◆周永康前警卫秘书已判10年 传涉暗杀习近平</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925251&from=gy">◆周永康前警卫秘书已判10年 传涉暗杀习近平</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925149&from=gy">◆六四惊骇内幕:被打死学生都是被锁定目标 分析:习困于四个不自信 </a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925149&from=gy">◆六四惊骇内幕:被打死学生都是被锁定目标 分析:习困于四个不自信 </a><br/></td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c925235&from=gy">◆鲜血染红的顶子：论功行赏的六四军人升官名单 </a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c925235&from=gy">◆鲜血染红的顶子：论功行赏的六四军人升官名单 </a><br/></td>
  </tr>
    </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c924712&from=gy">◆六四29周年前 军方机密文档首曝光 打脸中共</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c924712&from=gy">◆六四29周年前 军方机密文档首曝光 打脸中共</a><br/>
 </td>
 </tr>
      <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/show.htm?c924672&from=gy">◆大陆街头现六四标语 要求结束专政 （图）</a><br/></td>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/show.htm?c924672&from=gy">◆大陆街头现六四标语 要求结束专政 （图）</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
  <tr>
    <td align=left> 
-<a href="https://olkhbg.global.ssl.fastly.net/?c816850&from=gy">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816850&from=gy">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
    <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816857&from=gy">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816857&from=gy">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
   <tr>
   <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816860&from=gy">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816860&from=gy">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816855&from=gy">◆环球直击◆透析最新的全球资讯</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816855&from=gy">◆环球直击◆透析最新的全球资讯</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816851&from=gy">◆世事关心◆关注全球新闻之焦点</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816851&from=gy">◆世事关心◆关注全球新闻之焦点</a><br/>
    </tr>
    <tr>
      <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816852&from=gy">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816852&from=gy">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816694&from=gy">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816694&from=gy">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/?c816650&from=gy">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816650&from=gy">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy1-wxsm.png" /></td>
