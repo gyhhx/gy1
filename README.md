@@ -101,10 +101,6 @@
  <a href="http://t.cn/R3Fslvz">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
-    <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/tongdao2.jpg" /></td>
-  </tr>
-
    <tr>
     <td align=center>请尝试不同入口，进入动态网址<br/>
      <a href="https://s3.us-east-2.amazonaws.com/ogateh/show.htm?from=gy">入口</a>
@@ -120,6 +116,9 @@
     </td>
   </tr>
   <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /></td>
+</tr>
+  <tr>  
   <td align=center>
   <a href="http://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816846_2_1&from=gy">每日三退精选</a><br/>
       <a href="http://jugtfc.global.ssl.fastly.net/sw01.aspx/?ogQuit.aspx&from=gy"><b>〓请您加入 三退大潮〓<br/></a>
