@@ -122,7 +122,7 @@
   <tr>
   <td align=center>
   <a href="http://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816846_2_1&from=gy">每日三退精选</a><br/>
-      <a href="http://jugtfc.global.ssl.fastly.net/sw01.aspx/?ogQuit.aspx&from=gy"><b>〓君子不立危墙之下〓<br/></a>
+      <a href="http://jugtfc.global.ssl.fastly.net/sw01.aspx/?ogQuit.aspx&from=gy"><b>〓请您加入 三退大潮〓<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
