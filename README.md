@@ -120,8 +120,8 @@
 </tr>
   <tr>  
   <td align=center>
-  <a href="http://t.cn/RB4U1iB">每日三退精选</a><br/>
-      <a href="http://t.cn/RB4Ueak"><b>〓请您加入 三退大潮〓<br/></a>
+  <a href="http://t.cn/RB4U1iB">视频：为了您的未来　请加入三退大潮</a><br/>
+      <a href="http://t.cn/RB4Ueak"><b>〓三退保平安〓<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
