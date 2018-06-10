@@ -4,89 +4,89 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926212&from=gy">◆《石涛聚焦》崔永元爆料持续 不同军方大佬都〝公开〞表态〝做了他〞</a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926212&from=gy">◆《石涛聚焦》崔永元爆料持续 不同军方大佬都〝公开〞表态〝做了他〞</a><br/></td>
   </tr> 
       <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926241&from=gy">◆汪洋和习近平调不同？用意很深？为何被王沪宁封杀？</a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926241&from=gy">◆汪洋和习近平调不同？用意很深？为何被王沪宁封杀？</a><br/></td>
    </tr>
     <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926501&from=gy">◆推背图早预言 习近平称帝最终下场</a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926501&from=gy">◆推背图早预言 习近平称帝最终下场</a><br/></td>
  </tr> 
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926308&from=gy">◆美朝拟采取〝大胆行动〞 中共最惧一噩梦般结果</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926308&from=gy">◆美朝拟采取〝大胆行动〞 中共最惧一噩梦般结果</a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c841033&from=gy">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c841033&from=gy">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
 </td>
    </tr>
  <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926324&from=gy">◆习近平前专机神秘往返平壤 港媒猜测金正恩动向</a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926324&from=gy">◆习近平前专机神秘往返平壤 港媒猜测金正恩动向</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926329&from=gy">◆轮到金融界官二代？英媒：习近平正拉网式清理</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926329&from=gy">◆轮到金融界官二代？英媒：习近平正拉网式清理</a><br/>
 </td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926278&from=gy">◆崔士方：李小琳与李小林 现身同一条跑道 </a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926278&from=gy">◆崔士方：李小琳与李小林 现身同一条跑道 </a><br/></td>
    </tr>
 <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c926335&from=gy">◆中共将领在香格里拉透露共军最大弱点 </a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c926335&from=gy">◆中共将领在香格里拉透露共军最大弱点 </a><br/></td>
  </tr>
    </tr>
   <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c919750&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c919750&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
 </td>
 </tr>
      <tr>
 <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/show.htm?c841287&from=gy">◆动◆态◆网◆新◆闻◆</a><br/></td>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/show.htm?c841287&from=gy">◆动◆态◆网◆新◆闻◆</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
   <tr>
    <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816857&from=gy">◆文昭解读◆解析全球最热门时事</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816857&from=gy">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
    <tr>
    <td align=left> 
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816850&from=gy">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816850&from=gy">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
   <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816860&from=gy">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816860&from=gy">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816855&from=gy">◆纵论天下◆透析最新热点之陈破空</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816855&from=gy">◆纵论天下◆透析最新热点之陈破空</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c838308&from=gy">◆新闻看点◆著名时政分析之李沐阳</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c838308&from=gy">◆新闻看点◆著名时政分析之李沐阳</a><br/>
    </tr>
    <tr>
      <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816852&from=gy">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816852&from=gy">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816694&from=gy">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816694&from=gy">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=left>
-<a href="https://olkhbg.global.ssl.fastly.net/sf04.aspx/?c816650&from=gy">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://jugtfc.global.ssl.fastly.net/sw01.aspx/?c816650&from=gy">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy1-wxsm.png" /></td>
