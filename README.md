@@ -8,7 +8,7 @@
   </tr> 
       <tr>
 <td align=left>
-<a href="http://t.cn/RBVsS5j">◆网传最清晰的外星飞碟 向人飞来 吓得人们惊慌逃走（视频）</a><br/></td>
+<a href="http://t.cn/RBfyVb4">◆不许笑！周永康徐才厚雷政富雷人语录曝光</a><br/></td>
    </tr>
     <tr>
 <td align=left>
