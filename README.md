@@ -4,6 +4,10 @@
   </tr>
   <tr>
 <td align=left>
+<a href="http://t.cn/RBfDlqY">◆【快讯】川普与金正恩签联合声明(附全文） </a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
 <a href="http://t.cn/RBVsYX6">◆【微博精粹】全世界围剿中共时 今年最强高级黑在青岛上演</a><br/></td>
   </tr> 
       <tr>
@@ -36,11 +40,7 @@
 <tr>
 <td align=left>
 <a href="http://t.cn/RBfLaKD">◆金正恩赴川金会自带马桶有原因 毛泽东粪便遭窃改变历史 </a><br/></td>
-   </tr>
-<tr>
-<td align=left>
-<a href="http://t.cn/RB4Z3on">◆中共将领在香格里拉透露共军最大弱点 </a><br/></td>
- </tr>
+  </tr>
    </tr>
   <tr>
 <td align=left>
