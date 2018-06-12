@@ -4,7 +4,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="http://t.cn/RBfDlqY">◆【快讯】川普与金正恩签联合声明(附全文） </a><br/></td>
+<a href="http://t.cn/RBfDlqY">◆【快讯】川金会联合声明 朝鲜承诺完全弃核 (附全文） </a><br/></td>
  </tr>
   <tr>
 <td align=left>
