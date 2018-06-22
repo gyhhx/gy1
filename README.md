@@ -45,7 +45,7 @@
    </tr>
    <tr>
 <td align=left>
-<a href="http://t.cn/RB4wp5d">◆动◆态◆网◆新◆闻◆</a><br/></td>
+<a href="http://t.cn/RrA9kqf">◆动◆态◆网◆新◆闻◆</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
