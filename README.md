@@ -35,12 +35,12 @@
    </tr>
   <tr>
 <td align=left>
-<a href="http://t.cn/RB4ZDMq">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
+<a href="http://t.cn/RrA9x3u">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
 </td>
 </tr>
  <tr>
 <td align=left>
-<a href="http://t.cn/RB47pFA">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
+<a href="http://t.cn/RrA9QAp">◆网门授权•大陆独播•影片 《BADASS 选美皇后》 </a><br/>
 </td>
    </tr>
    <tr>
