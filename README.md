@@ -52,7 +52,7 @@
   </tr>
   <tr>
    <td align=left>
-<a href="http://h6hf32443d.fv.smarthub.at/oo.aspx?name=c816857&key=l9gs164o&from=gy&tag=9973110">◆文昭解读◆解析全球最热门时事</a><br/>fv.smarthub.at
+<a href="http://h6hf32443d.fv.smarthub.at/oo.aspx?name=c816857&key=l9gs164o&from=gy&tag=9973110">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
    <tr>
