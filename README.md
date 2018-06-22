@@ -116,8 +116,8 @@
 </tr>
   <tr>  
   <td align=center>
-  <a href="http://h24243d.fv.smarthub.at/oo.aspx?name=c816846_2_1&key=l9gs164o&from=gy&tag=9973110">视频：为了您的未来　请加入三退大潮</a><br/>
-      <a href="http://j2443d.fv.smarthub.at/oo.aspx?name=ogQuit&key=l9gs164o&from=gy&tag=9973110"><b>◆◆◆三退保平安◆◆◆<br/></a>
+  <a href="http://h24243d.fv.smarthub.at/oo.aspx?name=c894205&key=l9gs164o&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
+      <a href="http://j2443d.fv.smarthub.at/oo.aspx?name=ogQuit.aspx&key=l9gs164o&from=gy"><b>◆◆◆三退保平安◆◆◆<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
