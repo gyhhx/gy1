@@ -28,10 +28,6 @@
 <td align=left>
 <a href="http://h6hf32443d.fv.smarthub.at/oo.aspx?name=c940246&key=l9gs164o&from=gy">◆长生生物董事长被带走 与炫富儿媳合照曝光</a><br/></td>
   </tr> 
- <tr>
-<td align=left>
-<a href="http://h6hf32443d.fv.smarthub.at/oo.aspx?name=c940351&key=l9gs164o&from=gy">◆万达帝国崩塌：负债4205亿 王健林成“首负”！</a><br/>
-</td>
    </tr>
  <tr>
 <td align=left>
