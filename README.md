@@ -64,7 +64,7 @@
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
   <tr>
-   <td align=left>
+   <td align=center>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c816857&key=l9gs164o&from=gy&tag=9973110">◆文昭解读◆解析全球最热门时事</a><br/>
     </td>
   </tr>
