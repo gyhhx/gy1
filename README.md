@@ -88,24 +88,6 @@
   </tr>
   <tr>
 <td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c939971&key=l9gs164o&from=gy">◆组图：香港游行“法办江泽民”横幅震撼陆客</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c941900&key=l9gs164o&from=gy">◆陆媒主编曝中国女星北京机场被抓：不敢说出名字</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c941876&key=l9gs164o&from=gy">◆揭秘：胡锦涛与刘源遭同一仇人暗算 甚至引发兵变</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c941880&key=l9gs164o&from=gy">◆王沪宁可能被整肃的七大征兆</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
 <a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c941955&key=l9gs164o&from=gy">◆传习亲信接管大外宣和网信办 学者:现在调整已迟</a><br/></td>
  </tr>
    </tr>
