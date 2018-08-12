@@ -4,6 +4,11 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gy">◆『全球华人美声唱法声乐大赛』 开始报名 </a><br/>
+</td>
+   </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c946345&key=l9gs164o&from=gy">◆陈破空:北戴河水深！王落水，李出头，习近平权力缩水，两条路线的斗争</a><br/>
 </td>
    </tr>
@@ -90,11 +95,6 @@
 <td align=left>
 <a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c939971&key=l9gs164o&from=gy">◆组图：香港游行“法办江泽民”横幅震撼陆客</a><br/></td>
  </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c945619&key=l9gs164o&from=gy">◆北戴河传重磅消息：讨论死保体制 拉国民垫背</a><br/>
-</td>
-   </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
