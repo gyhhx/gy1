@@ -4,7 +4,7 @@
   </tr>
    <tr>
 <td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">◆『2018全球华人美声唱法声乐大赛』 火热报名 </a><br/>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">◆◆◆『2018全球华人美声唱法声乐大赛』 火热报名◆◆◆ </a><br/>
 </td>
    </tr>
    <tr>
