@@ -107,40 +107,6 @@
    </tr>
   <tr>
 <td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c946321&key=l9gs164o&from=gy">◆丁薛祥内部报告曝光 点评中共〝接班人〞</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c946301&key=l9gs164o&from=gy">◆江泽民辩解〝兵变〞目的 被问急了冒出这么一句话</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c946389&key=l9gs164o&from=gy">◆习近平画像北京街头消失 台媒分析其权力</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c946318&key=l9gs164o&from=gy">◆突发！北戴河会期 北京大安山崩！今晚天象至 唐山已地震</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c946413&key=l9gs164o&from=gy">◆陈云被曝曾在中南海大兴土木 住深宅享特供</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c946397&key=l9gs164o&from=gy">◆《石涛聚焦》大陆学者：中共遭遇〝逢 8 魔咒〞 恰合〝戊戌巨变〞年</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c946373&key=l9gs164o&from=gy">◆习近平团队太过相信美财长和商业巨子 误判川普</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c939971&key=l9gs164o&from=gy">◆组图：香港游行“法办江泽民”横幅震撼陆客</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
 </td>
 </tr>
