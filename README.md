@@ -47,10 +47,6 @@
 <td align=left>
 <a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c947676&key=l9gs164o&from=gy">◆夏小强：土耳其局势是中国剧变的预演？</a><br/></td>
   </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c939971&key=l9gs164o&from=gy">◆组图：香港游行“法办江泽民”横幅震撼陆客</a><br/></td>
- </tr>a
    <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c947177&key=l9gs164o&from=gy">◆〝国脸〞罗京死于艾滋 涉央视高层与名嘴淫乱</a><br/>
