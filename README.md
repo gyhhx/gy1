@@ -87,28 +87,6 @@
 <a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c947233&key=l9gs164o&from=gy">◆P2P倒闭潮引民怨 中共急出台10措施遭炮轰</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c947314&key=l9gs164o&from=gy">◆从数据看中国“政府有多富，民有多穷”</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c939971&key=l9gs164o&from=gy">◆组图：香港游行“法办江泽民”横幅震撼陆客</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c946837&key=l9gs164o&from=gy">◆传习近平返京层层布防 蔡奇李鸿忠全线〝踩雷〞</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c946840&key=l9gs164o&from=gy">◆曾庆红翻云覆雨敲打习近平 习近平还击 来个大动作</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c946815&key=l9gs164o&from=gy">◆北戴河会议结束 习近平发出2个新指令 释重大信号</a><br/></td>
- </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
