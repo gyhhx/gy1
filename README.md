@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c953403&key=l9gs164o&from=gy">◆湖南耒阳爆发大规模群体事件 当局暴力镇压</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953394&key=l9gs164o&from=gy">◆公开用此字称呼中共 又一厦大教授被开除</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c953350&key=l9gs164o&from=gy">◆韩正写五万言揭发陈良宇 全因这个女人</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953381&key=l9gs164o&from=gy">◆颂习党媒羞认贸易战风险 中共最成功运作就要玩完了</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953478&key=l9gs164o&from=gy">◆CCTV强迫全中国小学生及家长洗脑激公愤</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c953479&key=l9gs164o&from=gy">◆周晓辉：川普缺席亚洲两峰会向北京传递信号</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c946877&key=l9gs164o&from=gy">◆漠视生命　中共毁人不倦</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c953343&key=l9gs164o&from=gy">◆日媒：内部刊物踢爆 中共的南海作战计划</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c953336&key=l9gs164o&from=gy">◆〝天安社〞背景大起底 中国黑帮遍地直通中央</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c953500&key=l9gs164o&from=gy">◆广东爆120万灾民 救援物资遭拦截 政府瞒实情</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c952978&key=l9gs164o&from=gy">◆美国考虑与中共断交？白宫顾问：是时候采取更大的行动了 美议员联署吁制裁中共副国级高官</a><br/>
 </td>
    </tr>
@@ -86,54 +130,6 @@
 <td align=left>
 <a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c952772&key=l9gs164o&from=gy">◆川普一举逼中共入绝境 还有三大杀手锏 下周就上？</a><br/></td>
   </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c952898&key=l9gs164o&from=gy">◆中美之战与中共绝境之三：中共民心尽失</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c952431&key=l9gs164o&from=gy">◆昆山命案牵出中共豢养黑社会内幕</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952378&key=l9gs164o&from=gy">◆赵紫阳披露内幕：邓小平为何选江 隔代指定胡</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c952373&key=l9gs164o&from=gy">◆港媒：薄周政变想〝大干〞 培养两个民选总统</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952514&key=l9gs164o&from=gy">◆红二代退休高官张晓山被当局作为“典型”批</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952450&key=l9gs164o&from=gy">◆中国重大车祸尸横遍地 当局禁止谈论称仅26死伤</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c952461&key=l9gs164o&from=gy">◆〝天安社〞高挂党旗嚣张发声明 威胁网友:别给脸不要脸</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c952515&key=l9gs164o&from=gy">◆体制内警察自爆中共大数据大情报黑幕</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c952402&key=l9gs164o&from=gy">◆外媒：习近平全球梦想成空临4大危险 中国人生活竟不如墨西哥</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c952584&key=l9gs164o&from=gy">◆川普孤立中共好消息不断 内部传出：对习近平影响非常严重</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c952486&key=l9gs164o&from=gy">◆员工举报复兴旗下药厂：比长春长生更恶劣</a><br/></td>
- </tr>
      <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
