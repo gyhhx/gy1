@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c953708&key=l9gs164o&from=gy">◆川人：习近平成“开国领袖”是福是祸？</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953593&key=l9gs164o&from=gy">◆金言：昆山反杀案 暗示中共垮台时间？</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c953715&key=l9gs164o&from=gy">◆耒阳民众再上街 公安局前喊雷姓局长下台</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953779&key=l9gs164o&from=gy">◆中共大使索赞歌 纳国总统怒回“我不是木偶”</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c953511&key=l9gs164o&from=gy">◆王丹：习近平回来了 5个蛛丝马迹很可疑</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c953666&key=l9gs164o&from=gy">◆〝反杀案〞当事人还原更多细节：没有撞车（视频）</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c953837&key=l9gs164o&from=gy">◆大陆再爆出当街持刀砍人血腥视频 网民热议</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c953763&key=l9gs164o&from=gy">◆业内人士披露 P2P爆雷是中共设计的阴谋</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c953916&key=l9gs164o&from=gy">◆军方色情中心名声太臭遭改 新政委任命牵出内幕</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c953799&key=l9gs164o&from=gy">◆中国人的钱哪去了 揭开中共“金钱密码”</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c953403&key=l9gs164o&from=gy">◆湖南耒阳爆发大规模群体事件 当局暴力镇压</a><br/>
 </td>
    </tr>
@@ -82,54 +126,6 @@
 <a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c953209&key=l9gs164o&from=gy">◆1天5厅官被查处 大陆专家曾泄纪委查腐败内幕</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c953217&key=l9gs164o&from=gy">◆“昆山反杀案”于海明属正当防卫不负刑责</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c953191&key=l9gs164o&from=gy">◆窃药厂机密售往中国 美华裔女科学家认罪</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c952806&key=l9gs164o&from=gy">◆人民日报出面洗地 〝天安社〞什么背景？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952788&key=l9gs164o&from=gy">◆〝八常委〞罕见集体露面 消息人士：当局设计自救行动</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c952931&key=l9gs164o&from=gy">◆文昭：川普对习近平的“秋季总攻”真要来了！北京的反攻大招你想不到</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952819&key=l9gs164o&from=gy">◆三亚居民在微信中对习不敬而遭罚款兼拘留</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c952882&key=l9gs164o&from=gy">◆杨宁：如此弱不禁风 北京政权还能挺多久？</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c952783&key=l9gs164o&from=gy">◆薄熙来庭审中自曝〝当总理之心〞 被法官连忙打断</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c952958&key=l9gs164o&from=gy">◆为何剑指李鹏家族？P2P受害者向李小琳喊出一句话</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c952911&key=l9gs164o&from=gy">◆夏小强：昆山宝马男遭反杀的惊人预示</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c952772&key=l9gs164o&from=gy">◆川普一举逼中共入绝境 还有三大杀手锏 下周就上？</a><br/></td>
-  </tr>
      <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
