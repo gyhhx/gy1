@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c955748&key=l9gs164o&from=gy">◆泼墨女失踪65天 传中共高层下令：不能让她活着出来</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955715&key=l9gs164o&from=gy">◆王岐山向三胖强调3件事 还出了个重词 韩媒：信号不一般</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c955741&key=l9gs164o&from=gy">◆网传安徽铜陵紧急通知 167人染猪瘟 13人亡</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955700&key=l9gs164o&from=gy">◆刘强东性侵门更多细节流出 他和奶茶妹真是各玩各的？</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955758&key=l9gs164o&from=gy">◆恐怖！中国教师开BMW冲撞小学生 多人压车底哀嚎</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955656&key=l9gs164o&from=gy">◆一场社会大变局即将到来的预警</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955821&key=l9gs164o&from=gy">◆习近平洒向非洲600亿到底是什么钱</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c955820&key=l9gs164o&from=gy">◆金正恩与栗战书牵手 出席朝鲜大阅兵</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c955845&key=l9gs164o&from=gy">◆赖昌星猝死狱中？官媒先沉默后辟谣</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c955833&key=l9gs164o&from=gy">◆P2P爆雷波及军队 军方恐慌急发内部维稳通报</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c955450&key=l9gs164o&from=gy">◆王岐山出席朝鲜建政70周年庆 韩媒：信号不一般</a><br/>
 </td>
    </tr>
@@ -68,59 +112,6 @@
 <td align=left>
 <a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955242&key=l9gs164o&from=gy">◆港媒：俄罗斯不甩中共拉拢 非洲中亚布局制衡北京</a><br/></td>
    </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955240&key=l9gs164o&from=gy">◆1个西瓜索赔1万 超市员工刀杀老俩口后自杀</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955155&key=l9gs164o&from=gy">◆中共政法委要组建五毛党 被批不务正业</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c955201&key=l9gs164o&from=gy">◆【新闻看点】新疆女子逾20家人失踪 吁世界援助</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c955257&key=l9gs164o&from=gy">◆《石涛聚焦》国家情报局长丹‘显然是假的’纽时攻击川普的〝一名抵抗者〞信件 很像中共文宣笔锋</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c955296&key=l9gs164o&from=gy">◆关系太乱！中共政治局19个同居故事</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c954716&key=l9gs164o&from=gy">◆薄熙来内定〝三宗罪〞无法翻身 只在最高层内部传达</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c954733&key=l9gs164o&from=gy">◆反了！云南媒体抗议习近平遭删 拼川普“八常委” 齐上场</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c954862&key=l9gs164o&from=gy">◆不得“妄议中央” 习近平演讲网评被封</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c954757&key=l9gs164o&from=gy">◆你以为援非600亿?其实大多进了他们口袋</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c954881&key=l9gs164o&from=gy">◆横河：昆山反杀案 拔出萝卜带出泥</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c954785&key=l9gs164o&from=gy">◆古玉文：刘强东案看点 谁把地点选在了美国？</a><br/></td>
-  </tr> 
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c954054&key=l9gs164o&from=gy">◆习近平强势登场 美媒列出几大可疑信号</a><br/>
-</td>
-   </tr>
      <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
