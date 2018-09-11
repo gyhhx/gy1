@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c956032&key=l9gs164o&from=gy">◆军方紧急发内部通报 习特使栗战书向美释善意？冯小刚传出多个不利消息</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c855920&key=l9gs164o&from=gy">◆萧宏：揭秘广西文革屠杀、水淹、吃人始末</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c956023&key=l9gs164o&from=gy">◆英媒：贸易战不断升温 习近平终于动用王岐山了</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c956025&key=l9gs164o&from=gy">◆赖昌星突然「被死亡」 自爆常去江泽民家 有人等他出意外</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955994&key=l9gs164o&from=gy">◆传中共空军政治部文工团被勒令撤销</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c956028&key=l9gs164o&from=gy">◆马云预知自己结局 曾直言中国企业家没有好下场</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c956131&key=l9gs164o&from=gy">◆毛逝世纪念日官方低调 民间复杂情绪在涌动</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c956059&key=l9gs164o&from=gy">◆假新闻！新华社爆造假 中国学者：我真的没受访</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c956146&key=l9gs164o&from=gy">◆近千四川老兵省政府维权 警方重兵围堵 辣椒水打压</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c956029&key=l9gs164o&from=gy">◆刘芳菲丈夫致死内幕曝光 多名前常委与副国级高官涉案 习王掌握核心证据</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c955748&key=l9gs164o&from=gy">◆泼墨女失踪65天 传中共高层下令：不能让她活着出来</a><br/>
 </td>
    </tr>
@@ -64,54 +108,6 @@
 <td align=left>
 <a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955501&key=l9gs164o&from=gy">◆颜丹：援非600亿美元撕下中共伪善画皮</a><br/></td>
  </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955527&key=l9gs164o&from=gy">◆【新闻看点】2000亿征税在即 川普再推2670亿</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955460&key=l9gs164o&from=gy">◆没钱了！中共翻旧账追缴2万亿 企业面临破产工人失业潮</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c955515&key=l9gs164o&from=gy">◆中共援非令中国人怨声载道 鲍彤吁高层反思</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c955505&key=l9gs164o&from=gy">◆P2P受害少妇对中国政府绝望自杀 传遗体被强行火化</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c955423&key=l9gs164o&from=gy">◆一只狗惹祸 美女主播摞倒两高官自己也搭上了</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c955473&key=l9gs164o&from=gy">◆中共建政后被割让领土一览表</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c955105&key=l9gs164o&from=gy">◆央视主持刘芳菲丈夫之死案开庭 内幕通天</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955147&key=l9gs164o&from=gy">◆网曝丁磊私评刘强东:灌酒性侵惯犯 曾在厕所施暴场</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c955236&key=l9gs164o&from=gy">◆又一P2P受害者自杀 曾爱国爱党的她三观全毁</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955197&key=l9gs164o&from=gy">◆2千亿关税压顶 中共将压力转移给谁</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c955242&key=l9gs164o&from=gy">◆港媒：俄罗斯不甩中共拉拢 非洲中亚布局制衡北京</a><br/></td>
-   </tr> 
      <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
