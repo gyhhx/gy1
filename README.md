@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c958703&key=l9gs164o&from=gy">◆北京男老虎落马 与江系高官密切 习近平气愤女老虎散播他谣言</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958700&key=l9gs164o&from=gy">◆习近平铲掉军队“后宫” 海军司令每个文工团有个姘头</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c958784&key=l9gs164o&from=gy">◆中共发明了一种全新方式压迫人民</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958629&key=l9gs164o&from=gy">◆中国经济论坛发言尺度惊人 刘鹤中途悄悄离场</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958732&key=l9gs164o&from=gy">◆暗示中共管太多？马云脱口：政府应做政府该做的事</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958798&key=l9gs164o&from=gy">◆中共推出“计分卡”24小时监控公民</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958669&key=l9gs164o&from=gy">◆黄洁夫给黄菊开刀 江泽民家奴活马成死马</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c958775&key=l9gs164o&from=gy">◆大陆〝向党表忠〞丑态百出 上饶警局惊现〝党狗〞浮雕</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c958754&key=l9gs164o&from=gy">◆文武：中共这一次吓傻了</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c958793&key=l9gs164o&from=gy">◆周晓辉：美国老朋友警告北京 中南海难回应</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c958248&key=l9gs164o&from=gy">◆大陆女演员沈丽君惊传跳楼自杀</a><br/>
 </td>
    </tr>
@@ -104,85 +148,6 @@
 <td align=left>
 <a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c957863&key=l9gs164o&from=gy">◆中国游客入住瑞典旅馆被逐事件 内情曝光</a><br/></td>
  </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957729&key=l9gs164o&from=gy">◆江泽民被老军头气得浑身哆嗦拿两女人出气</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957589&key=l9gs164o&from=gy">◆债务如山 中共面对川普进攻无力招架</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c957830&key=l9gs164o&from=gy">◆市场震动！中概股下跌 人民币十分钟跌超百点</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c957877&key=l9gs164o&from=gy">◆【新闻看点】私有退场论引海啸 官方恐慌急灭火</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c957893&key=l9gs164o&from=gy">◆河南警察逞凶 农民工讨薪疑被当街勒死（视频）</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c957891&key=l9gs164o&from=gy">◆夏小强：马云宣布辞职 深层原因何在</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c957797&key=l9gs164o&from=gy">◆邵小珊曝冯小刚辟谣出逃微博是他人代发 此官二代爆料向来深度超猛</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c957484&key=l9gs164o&from=gy">◆范冰冰恐成下一个汤灿？传她后台进去了 家中豪车全不见</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957461&key=l9gs164o&from=gy">◆北京割韭菜第二波将至 大佬可能要灾难临头 中共给民众“打鸡血”</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c816857&key=l9gs164o&from=gy">◆文昭谈古论今：国家大剧院现“反政府起义”，沉默螺旋，和私企”被离场“恐慌</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957507&key=l9gs164o&from=gy">◆韩媒：马云与政府间矛盾促其退隐</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957370&key=l9gs164o&from=gy">◆白斤十：如果中共不崩溃－中共会否因中美贸易战而崩溃</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c957449&key=l9gs164o&from=gy">◆湖南恐袭案54死伤1人被抓 知情者曝凶手竟有3人 官版疑点重重 凶手竟服刑未满</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c957500&key=l9gs164o&from=gy">◆陈思敏：官媒揭底“疫苗沙皇”高层后台是谁</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c957488&key=l9gs164o&from=gy">◆文革又回来了？ 中国大陆90后主演样板戏</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c957483&key=l9gs164o&from=gy">◆做什么坏事？中俄等38国被联合国列可耻国</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c957454&key=l9gs164o&from=gy">◆几经炼狱吴法宪终于大彻大悟 毫不留情毛泽东</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c957021&key=l9gs164o&from=gy">◆范冰冰案涉更大后台 专家：当局瞄准曾庆红家族</a><br/>
-</td>
-   </tr>
      <tr>
 <td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
