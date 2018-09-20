@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c840522&key=l9gs164o&from=gy">◆中共渗透台湾到底多严重</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958742&key=l9gs164o&from=gy">◆王岐山刘鹤连续开会讨论谈判 会议爆发分歧</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c958997&key=l9gs164o&from=gy">◆习近平抓牢军权 神秘心腹升要害高位 是胡锦涛儿子同学 帮习做过大事</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c959028&key=l9gs164o&from=gy">◆传中共财经财政副部长贪腐千亿 情妇高达148人</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958980&key=l9gs164o&from=gy">◆最正美女金融分析师饭局陪酒 男男舔胸片疯传</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959048&key=l9gs164o&from=gy">◆美要新华社登记为外国代理人 中共为何着急？</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959162&key=l9gs164o&from=gy">◆川普第三轮攻势更狠 习近平新对策出炉 中美有两大时间点 贸易战会打到何时停？</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c958925&key=l9gs164o&from=gy">◆传赵本山病情恶化 曝薄熙来对他赞不绝口 他为何扇冯小刚耳光？</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c959032&key=l9gs164o&from=gy">◆为刘强东洗地湖北高官倾巢出动 马云公开嘲讽他性侵 人们为何相信阴谋论？</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c958916&key=l9gs164o&from=gy">◆传令计划秦城监狱夜呼情妇 装疯卖傻</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c958703&key=l9gs164o&from=gy">◆北京男老虎落马 与江系高官密切 习近平气愤女老虎散播他谣言</a><br/>
 </td>
    </tr>
@@ -86,73 +130,6 @@
 <td align=left>
 <a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c958446&key=l9gs164o&from=gy">◆【微视频】中共危机了！再次抓特务</a><br/></td>
   </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c958335&key=l9gs164o&from=gy">◆专家揭秘九一三 赤裸裸毛林宫斗 周大哭高官不解</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c958131&key=l9gs164o&from=gy">◆不可思议 习近平批示6次也遭顶风拒办</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958069&key=l9gs164o&from=gy">◆王岐山出马上阵贸易战 川普反应迅速强硬回击了！</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c958152&key=l9gs164o&from=gy">◆美国报告曝光中共最怕触及的问题</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957994&key=l9gs164o&from=gy">◆揭秘：周恩来3个干女儿惨死的暧昧秘密</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958033&key=l9gs164o&from=gy">◆习近平会见委总统 援助数量仍是谜 彭丽媛排名引关注</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958067&key=l9gs164o&from=gy">◆文革时周恩来为何突然用手撕开衬衣 露出胸膛？</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958037&key=l9gs164o&from=gy">◆吴小平文章引中南海恐慌 事关马云隐退？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c958094&key=l9gs164o&from=gy">◆四川当局承诺恐成空 密件曝光严控老兵集访</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c958103&key=l9gs164o&from=gy">◆美媒：川普2千亿关税施压 刘鹤幕后态度曝光</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c958197&key=l9gs164o&from=gy">◆胡成：瑞典闹事那3个中国人背景不凡多半是特殊公务员</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c957843&key=l9gs164o&from=gy">◆美海湾石油在大陆油站被行政提价 中共假开放骗外资</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c957791&key=l9gs164o&from=gy">◆邱会作揭秘：林彪死后毛泽东异常兴奋说一句话 和听到蒋介石去世惊人反差</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c957863&key=l9gs164o&from=gy">◆中国游客入住瑞典旅馆被逐事件 内情曝光</a><br/></td>
- </tr>
-     <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c944059&key=l9gs164o&from=gysygit">■■■『2018全球华人美声唱法声乐大赛』 火热报名■■■ </a><br/>
-</td>
-   </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
