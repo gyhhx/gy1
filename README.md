@@ -121,55 +121,6 @@
 <a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959162&key=l9gs164o&from=gy">◆川普第三轮攻势更狠 习近平新对策出炉 中美有两大时间点 贸易战会打到何时停？</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c958925&key=l9gs164o&from=gy">◆传赵本山病情恶化 曝薄熙来对他赞不绝口 他为何扇冯小刚耳光？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c959032&key=l9gs164o&from=gy">◆为刘强东洗地湖北高官倾巢出动 马云公开嘲讽他性侵 人们为何相信阴谋论？</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c958916&key=l9gs164o&from=gy">◆传令计划秦城监狱夜呼情妇 装疯卖傻</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c958703&key=l9gs164o&from=gy">◆北京男老虎落马 与江系高官密切 习近平气愤女老虎散播他谣言</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958700&key=l9gs164o&from=gy">◆习近平铲掉军队“后宫” 海军司令每个文工团有个姘头</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c958784&key=l9gs164o&from=gy">◆中共发明了一种全新方式压迫人民</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958629&key=l9gs164o&from=gy">◆中国经济论坛发言尺度惊人 刘鹤中途悄悄离场</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958732&key=l9gs164o&from=gy">◆暗示中共管太多？马云脱口：政府应做政府该做的事</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958798&key=l9gs164o&from=gy">◆中共推出“计分卡”24小时监控公民</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c958669&key=l9gs164o&from=gy">◆黄洁夫给黄菊开刀 江泽民家奴活马成死马</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c958775&key=l9gs164o&from=gy">◆大陆〝向党表忠〞丑态百出 上饶警局惊现〝党狗〞浮雕</a><br/>
-</td>
-   </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
