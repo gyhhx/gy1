@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c960012&key=l9gs164o&from=gy">◆川普一切手段在所不惜的最后目的 让习近平心悸？寝食难安？</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c960054&key=l9gs164o&from=gy">◆范冰冰逃税 习近平放狠话 中共官方首次回应</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c960005&key=l9gs164o&from=gy">◆习近平欲擒故纵调虎离山 高官白克力被抓捕细节曝光</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c959924&key=l9gs164o&from=gy">◆中美贸易正酣 王岐山离京另担重任</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c960027&key=l9gs164o&from=gy">◆王丹：中共武力攻台有多大胜算？</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959996&key=l9gs164o&from=gy">◆揭秘：胡锦涛早知薄周政变 薄〝一记耳光〞改变命运</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c960065&key=l9gs164o&from=gy">◆斥中共洗脑教育及军训 湖南大一新生被打压</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c959987&key=l9gs164o&from=gy">◆日本电视台播放中国大陆人权纪录片 震惊电视观众！</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c960085&key=l9gs164o&from=gy">◆瑞典住宿风波骤升级 中共大使抗议瑞媒节目大骂〝恶毒〞</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c960050&key=l9gs164o&from=gy">◆川普密苏里演讲震慑中共：美国有远远更多的子弹</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c959673&key=l9gs164o&from=gy">◆金正恩〝羞辱〞中国人 牵出中共卖国秘密</a><br/>
 </td>
    </tr>
@@ -72,55 +116,6 @@
 <td align=left>
 <a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959485&key=l9gs164o&from=gy">◆美国制裁中共军委装备发展部及部长</a><br/></td>
   </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959577&key=l9gs164o&from=gy">◆周永康更大罪行曝光 党媒：比腐败还恐怖</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c959498&key=l9gs164o&from=gy">◆广东肇庆强拆血案 副镇长国土所长被砍死</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c959593&key=l9gs164o&from=gy">◆揭秘江泽民打两张牌吓退布什 今川普出重手钳制中共 整副牌待打</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c959395&key=l9gs164o&from=gy">◆知情人曝北京真实心态：贸战不愿投降又不知所措</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c840522&key=l9gs164o&from=gy">◆中共渗透台湾到底多严重</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958742&key=l9gs164o&from=gy">◆王岐山刘鹤连续开会讨论谈判 会议爆发分歧</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c958997&key=l9gs164o&from=gy">◆习近平抓牢军权 神秘心腹升要害高位 是胡锦涛儿子同学 帮习做过大事</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c959028&key=l9gs164o&from=gy">◆传中共财经财政副部长贪腐千亿 情妇高达148人</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c958980&key=l9gs164o&from=gy">◆最正美女金融分析师饭局陪酒 男男舔胸片疯传</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959048&key=l9gs164o&from=gy">◆美要新华社登记为外国代理人 中共为何着急？</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c959162&key=l9gs164o&from=gy">◆川普第三轮攻势更狠 习近平新对策出炉 中美有两大时间点 贸易战会打到何时停？</a><br/>
-</td>
-   </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
