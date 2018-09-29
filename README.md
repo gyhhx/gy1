@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c962007&key=l9gs164o&from=gy">◆文昭：川普宣布和习近平”友船翻” 自我催眠惹祸了!</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c961987&key=l9gs164o&from=gy">◆习近平北巡全程封路 网民踢爆央视造假</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c961888&key=l9gs164o&from=gy">◆中国银行内部消息：川普能分分钟秒杀中共</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c961970&key=l9gs164o&from=gy">◆惠州惊爆杀官案 传副市长全家被砍</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c961766&key=l9gs164o&from=gy">◆朝鲜突发〝1号事故〞 有人针对金正恩家族下手</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c961932&key=l9gs164o&from=gy">◆张林：中共中央头目都是囚徒</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c961895&key=l9gs164o&from=gy">◆胡耀邦长子胡德平批新公私合营：后果很可怕</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c961982&key=l9gs164o&from=gy">◆中共审查经济负面消息 管控六个话题</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c962024&key=l9gs164o&from=gy">◆中共十大元帅有妻49人 多为年轻美女 叶剑英一人占9个</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c961981&key=l9gs164o&from=gy">◆林辉：邓小平女儿指北大曾变成法西斯集中营</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c961541&key=l9gs164o&from=gy">◆重磅！新疆出大事！铁路突然宣布停止售票</a><br/>
 </td>
    </tr>
@@ -100,40 +144,6 @@
 <a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c960985&key=l9gs164o&from=gy">◆【禁闻】《悲惨世界》上海公演 观众〝剧院起义〞</a><br/></td>
   </tr>
    </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c923863&key=l9gs164o&from=gy">◆时事大家谈：闭关锁国？中国拟禁境外时事节目和港澳台主持</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c960977&key=l9gs164o&from=gy">◆川普联大演讲:社会主义是灾难 不能容忍中共的方式</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c960878&key=l9gs164o&from=gy">◆知情人：贸易战大兵压境 中共内部还在争论不休</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c960834&key=l9gs164o&from=gy">◆罕见高层人事调动 昔日江派倒戈要员转任统战部</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c960888&key=l9gs164o&from=gy">◆习近平不爽？北京拒绝美军两栖攻击舰访香港</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c960879&key=l9gs164o&from=gy">◆美2000亿关税落地 中共为何拒绝谈判</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c960942&key=l9gs164o&from=gy">◆轰走接谈官员 千名老兵中央军委彻夜维权</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c960869&key=l9gs164o&from=gy">◆从汤灿到"特定关系人" 看中共情妇文化</a><br/></td>
- </tr>
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
