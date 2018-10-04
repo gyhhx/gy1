@@ -141,9 +141,6 @@
     <td align=left>
 <a href="http://h2g4f43d.wink.gt.erotikload.at/oo.aspx?name=c816650&key=l9gs164o&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-    <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/gy1-wxsm.png" /></td>
-  </tr>
    <tr>
   <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/new1.jpg" />
   </td>
