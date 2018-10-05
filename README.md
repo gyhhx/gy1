@@ -170,7 +170,7 @@
     </td>
   </tr>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" />" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" />" </td>
 </tr>
   <tr>  
   <td align=center>
