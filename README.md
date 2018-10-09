@@ -114,46 +114,6 @@
    </tr> 
   <tr>
 <td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c964468&key=l9gs164o&from=gy">◆中方对孟宏伟下落保持缄默 传孟在某方面对抗当局</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c964510&key=l9gs164o&from=gy">◆下月开始公安人员可随时登堂入室查阅互联网伺服器</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c964460&key=l9gs164o&from=gy">◆盘点三大假新闻 日媒警告：中共砸钱攻台</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c964568&key=l9gs164o&from=gy">◆习近平语录“我在必不成功” 爆“高级黑” ？大反转！</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c964482&key=l9gs164o&from=gy">◆路透:罗斯披露〝毒丸〞条款 川普下大棋全球围堵中共</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c964078&key=l9gs164o&from=gy">◆揭秘：江绵恒与江泽民三姘头的秘闻</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964097&key=l9gs164o&from=gy">◆“小范！你适可而止” 范冰冰向高层求救为何遭拒？免于牢狱之灾因为习近平？</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c964131&key=l9gs164o&from=gy">◆彭斯批中共演讲 中共官方封锁网民热烈转发</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964099&key=l9gs164o&from=gy">◆南海共军撞美军被曝精心策划 中共军委直接下令 习点头？美军要上演全球级军演碾压中共</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
 </td>
 </tr>
