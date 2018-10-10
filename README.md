@@ -4,6 +4,50 @@
   </tr> 
    <tr>
 <td align=left>
+<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c965302&key=l9gs164o&from=gy">◆山东平度老兵暴力对抗全部视频 这就是党军下场</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c965310&key=l9gs164o&from=gy">◆习近平不愿被当弱者 中国全力“止血”</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c965254&key=l9gs164o&from=gy">◆江泽民一个电话调动正规军8个师 根本不是为了抗洪</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c965292&key=l9gs164o&from=gy">◆孟宏伟案预示大地震将至 公安部通报话外有话</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c965421&key=l9gs164o&from=gy">◆老红军脑洞大开 称长征用猪油发电机一夜爆红</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c965362&key=l9gs164o&from=gy">◆王尚一：《中共灭亡在即》概述</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c965416&key=l9gs164o&from=gy">◆美史学家全球风险评估 中美可能爆发台海冲突</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c965377&key=l9gs164o&from=gy">◆【新闻看点】外交丑闻频爆 港媒：中共太愚蠢</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c965437&key=l9gs164o&from=gy">◆全球谴责下 中共加速转移被囚维吾尔人</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c965475&key=l9gs164o&from=gy">◆G20川习会没戏？川普条件曝光 中共恐惧金融核弹下周爆？</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c964922&key=l9gs164o&from=gy">◆中南海政局诡异 又一江派元老现身</a><br/>
 </td>
    </tr>
@@ -64,54 +108,6 @@
 <td align=left>
 <a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964696&key=l9gs164o&from=gy">◆传「刀子图」暗示处境？中共：孟宏伟涉违法受查</a><br/></td>
  </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964705&key=l9gs164o&from=gy">◆孟宏伟失踪前曾发给妻子警示信息</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c816932&key=l9gs164o&from=gy">◆彭斯演说引发舆论战，胡锡进嘲笑王沪宁嘴笨，有意取而代之？</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://132443d.wink.gt.erotikload.at/oo.aspx?name=c964704&key=l9gs164o&from=gy">◆中美贸易战恐拉长 中共最担心的事料会发生</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h62hf3d.wink.gt.erotikload.at/oo.aspx?name=c964646&key=l9gs164o&from=gy">◆惊爆！共军骇走海量美军潜艇战机密 彭斯透露美国下个月出大招</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://22443d.wink.gt.erotikload.at/oo.aspx?name=c964738&key=l9gs164o&from=gy">◆【禁闻】彭斯〝伐共宣言〞：美国决定性回击</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://32443d.wink.gt.erotikload.at/oo.aspx?name=c964661&key=l9gs164o&from=gy">◆碧桂园降价 业主砸售楼处 维权潮明年或更猛</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1443d.wink.gt.erotikload.at/oo.aspx?name=c964488&key=l9gs164o&from=gy">◆惊传孟宏伟或涉北戴河政变 国际刑警正式向北京要解释</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964374&key=l9gs164o&from=gy">◆台媒曝川普将对江泽民动手 江家5000亿美元或被冻结</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://1443d.wink.gt.erotikload.at/oo.aspx?name=c964484&key=l9gs164o&from=gy">◆周晓辉：孟宏伟传被查 另一名出事高官是谁？</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964489&key=l9gs164o&from=gy">◆山东数百老兵木棍灭火器对抗千警 双方激战</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12443d.wink.gt.erotikload.at/oo.aspx?name=c964406&key=l9gs164o&from=gy">◆薄熙来抓捕温家宝计划 被胡锦涛一招粉碎</a><br/></td>
-   </tr> 
   <tr>
 <td align=left>
 <a href="http://a443d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
