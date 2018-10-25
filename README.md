@@ -4,6 +4,50 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h147k43d.wink.gt.erotikload.at/oo.aspx?name=c970208&key=l9gs164o&from=gy">◆习准备大妥协? 刘鹤讲话释信号？大反转！中南海有大噩耗</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h127k443d.wink.gt.erotikload.at/oo.aspx?name=c970212&key=l9gs164o&from=gy">◆传孟宏伟掌重要机密 被抓后导致郑晓松坠楼</a><br/></td>
+  </tr>
+   </tr>
+  <tr>
+<td align=left>
+<a href="http://1478l43d.wink.gt.erotikload.at/oo.aspx?name=c923863&key=l9gs164o&from=gy">◆时事大家谈：习近平二度“南巡”，看点何在？</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h18l2443d.wink.gt.erotikload.at/oo.aspx?name=c970198&key=l9gs164o&from=gy">◆风声鹤唳！习近平防暗杀连这个都封锁了 正收权国安部</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h1248l43d.wink.gt.erotikload.at/oo.aspx?name=c970288&key=l9gs164o&from=gy">◆胡锡进实拍新疆集中营 网友：毛骨悚然</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://18l32443d.wink.gt.erotikload.at/oo.aspx?name=c970192&key=l9gs164o&from=gy">◆港珠澳大桥竟然是特供桥 港人1200亿血汗钱投海 还有2个更深坑等着</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://8l132443d.wink.gt.erotikload.at/oo.aspx?name=c970223&key=l9gs164o&from=gy">◆伊利官网罕见举报前董事长 直言案涉前国级高层</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h68l2hf3d.wink.gt.erotikload.at/oo.aspx?name=c970257&key=l9gs164o&from=gy">◆中国各地传出图书馆、书店遭当局整顿 消息被「和谐」</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://2248l43d.wink.gt.erotikload.at/oo.aspx?name=c970245&key=l9gs164o&from=gy">◆住建干部猝死妇联主席家 网传2人劲舞视频</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://3248l43d.wink.gt.erotikload.at/oo.aspx?name=c970421&key=l9gs164o&from=gy">◆习近平南巡不平静 广东突爆万民抗议(视频)</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h147k43d.wink.gt.erotikload.at/oo.aspx?name=c969783&key=l9gs164o&from=gy">◆文昭：大时大事！《中导》废 习近平意外居“囚徒困境”</a><br/>
 </td>
    </tr>
@@ -68,54 +112,6 @@
 <td align=left>
 <a href="http://h1248l43d.wink.gt.erotikload.at/oo.aspx?name=c969475&key=l9gs164o&from=gy">◆徐良曾涉娱乐场所命案 被军队关禁闭一年</a><br/></td>
    </tr> 
-  <tr>
-<td align=left>
-<a href="http://18l32443d.wink.gt.erotikload.at/oo.aspx?name=c969463&key=l9gs164o&from=gy">◆孟宏伟落马惊动郭声琨？政法委紧急喊话意味深</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://8l132443d.wink.gt.erotikload.at/oo.aspx?name=c969569&key=l9gs164o&from=gy">◆中共工会十七大：不提邓小平理论</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h684l2hf3d.wink.gt.erotikload.at/oo.aspx?name=c969503&key=l9gs164o&from=gy">◆传中共专家提供贸易战不实情报 以免犯上</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://2248l43d.wink.gt.erotikload.at/oo.aspx?name=c969564&key=l9gs164o&from=gy">◆习近平南巡同日 珠江实业集团董事长落马</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://3248l43d.wink.gt.erotikload.at/oo.aspx?name=c969679&key=l9gs164o&from=gy">◆美国退出又一条约，土共慌神大喊：打开了地狱之门！川习会敲定日期</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h1433433d.wink.gt.erotikload.at/oo.aspx?name=c969187&key=l9gs164o&from=gy">◆曾庆红给习近平当头一棒？澳门中联办主任上任1年横死震惊各界</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h12244333d.wink.gt.erotikload.at/oo.aspx?name=c969163&key=l9gs164o&from=gy">◆中央被架空 习近平重磅会议训话 走出国门登上哈佛麻省理工</a><br/></td>
-  </tr>
-   </tr>
-  <tr>
-<td align=left>
-<a href="http://14e2f43d.wink.gt.erotikload.at/oo.aspx?name=c969311&key=l9gs164o&from=gy">◆胡锦涛手在颤抖 习近平或成替罪羊</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://h124e2f43d.wink.gt.erotikload.at/oo.aspx?name=c969264&key=l9gs164o&from=gy">◆江泽民妒忌心超乎想象 引发疯狂举动</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h12re443d.wink.gt.erotikload.at/oo.aspx?name=c969122&key=l9gs164o&from=gy">◆周晓辉：北京将开四中全会 破惯例情势危急</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://13er2443d.wink.gt.erotikload.at/oo.aspx?name=c969242&key=l9gs164o&from=gy">◆女律师裸检事件发酵 丈夫被消声 证人被抓</a><br/></td>
-  </tr> 
   <tr>
 <td align=left>
 <a href="http://a4r2343d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
