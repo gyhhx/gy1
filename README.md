@@ -4,6 +4,49 @@
   </tr>
    <tr>
 <td align=left>
+<a href="http://h147k43d.wink.gt.erotikload.at/oo.aspx?name=c971845&key=l9gs164o&from=gy">◆习近平敏感时刻做重要讲话 川普曝习尴尬一幕全场爆笑</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h127k443d.wink.gt.erotikload.at/oo.aspx?name=c971920&key=l9gs164o&from=gy">◆中共四中全会罕见推迟 中南海气氛诡异</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://1478l43d.wink.gt.erotikload.at/oo.aspx?name=c971893&key=l9gs164o&from=gy">◆原中纪委官员致国家主席习近平的一封信</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://h18l2443d.wink.gt.erotikload.at/oo.aspx?name=c971928&key=l9gs164o&from=gy">◆习近平北上是心仪南下是过场 中国经济病入膏肓无力回天 贸易战难解主因是此计划</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://h1248l43d.wink.gt.erotikload.at/oo.aspx?name=c971723&key=l9gs164o&from=gy">◆中共查税 大批海外华人帐户被封 资产放美国最安</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://18l32443d.wink.gt.erotikload.at/oo.aspx?name=c971871&key=l9gs164o&from=gy">◆王岐山吃台湾豆腐！赠书以总理竟称送「我们台湾省印的」</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://8l132443d.wink.gt.erotikload.at/oo.aspx?name=c971847&key=l9gs164o&from=gy">◆一段令人惊悚视频曝光中共严控民众</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://h68l2hf3d.wink.gt.erotikload.at/oo.aspx?name=c971944&key=l9gs164o&from=gy">◆最大“国家队”根本没撤！专家揭中国股市更大黑幕</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://2248l43d.wink.gt.erotikload.at/oo.aspx?name=c971783&key=l9gs164o&from=gy">◆习身上有多少邓的影子？</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://3248l43d.wink.gt.erotikload.at/oo.aspx?name=c971658&key=l9gs164o&from=gy">◆日媒曝习近平宴会惊人一幕 莫迪到 安倍送3千亿日元贷款</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
 <a href="http://h147k43d.wink.gt.erotikload.at/oo.aspx?name=c971363&key=l9gs164o&from=gy">◆一位中国大陆民众写给国家主席习近平的信</a><br/>
 </td>
    </tr>
@@ -77,28 +120,6 @@
 <a href="http://8l132443d.wink.gt.erotikload.at/oo.aspx?name=c971143&key=l9gs164o&from=gy">◆赖昌星红楼内景首曝光 关系网直通中南海</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="http://h68l2hf3d.wink.gt.erotikload.at/oo.aspx?name=c971140&key=l9gs164o&from=gy">◆重庆幼儿园砍人案 目击者被迫发声明澄清</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://2248l43d.wink.gt.erotikload.at/oo.aspx?name=c971305&key=l9gs164o&from=gy">◆崔永元：方舟子必须死 至少害死100人</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://3248l43d.wink.gt.erotikload.at/oo.aspx?name=c971130&key=l9gs164o&from=gy">◆程晓容：央视记者被英警方起诉 释何信号？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://h147k43d.wink.gt.erotikload.at/oo.aspx?name=c970880&key=l9gs164o&from=gy">◆习近平养虎遗患反对声集聚 政敌挑战越来越大 贸易战蔓延全局火上浇油</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://h127k443d.wink.gt.erotikload.at/oo.aspx?name=c970962&key=l9gs164o&from=gy">◆震惊！被中共歪曲的八国联军真相</a><br/></td>
-  </tr>
   <tr>
 <td align=left>
 <a href="http://a4r2343d.wink.gt.erotikload.at/oo.aspx?name=c919750&key=l9gs164o&from=gy">◆魔鬼在统治着我们的世界（持续连载中）</a><br/>
