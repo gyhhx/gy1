@@ -197,57 +197,6 @@
 <a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996440&key=ofejcfaxcltk&from=gy">◆贸易战和孟晚舟被抓交错 中共驻美大使竟180度大转弯</a><br/>
 </td>
    </tr>
- <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996526&key=ofejcfaxcltk&from=gy">◆习近平如报复加拿大软柿子 专家警告后果或比中共想象严重</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996521&key=ofejcfaxcltk&from=gy">◆孟晚舟加拿大被捕案或牵出江习权斗</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996465&key=ofejcfaxcltk&from=gy">◆敏感时刻 中共外交部官网出现瘫痪</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996477&key=ofejcfaxcltk&from=gy">◆中共开高层会 刘鹤任要职 孙春兰未获新职</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996538&key=ofejcfaxcltk&from=gy">◆邓小平情同父子大秘去世 江泽民最忌恨他</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996494&key=ofejcfaxcltk&from=gy">◆鹰派学者疑为习近平下套 怒吼撞沉航南海美舰</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996474&key=ofejcfaxcltk&from=gy">◆膝盖压脖子长达60秒！中共警察施暴台女视频曝光</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996599&key=ofejcfaxcltk&from=gy">◆揭秘中共战略特务绿小姐 美国才发现中共百年战略 已太迟？从孟晚舟开始反击</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996603&key=ofejcfaxcltk&from=gy">◆叶利钦女儿揭接班内幕 颠覆普京硬汉形象！</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996483&key=ofejcfaxcltk&from=gy">◆陆媒曝光华为女婿刘晓棕 图文旋即被删</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996524&key=ofejcfaxcltk&from=gy">◆内幕：中共在非洲爆买“钴”的背后目的</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c996621&key=ofejcfaxcltk&from=gy">◆出卖同党！毛泽东为何被国军捕获后免死获释？</a><br/></td>
- </tr>
    <tr>
 <td align=left>
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c841287&key=ofejcfaxcltk&from=gy">◆动◆态◆网◆新◆闻◆</a><br/></td>
