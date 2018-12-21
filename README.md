@@ -13,7 +13,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999059&key=ofejcfaxcltk&from=gy">◆毛书也成敏感物 毛左教授携带被盘查遭讥讽</a><br/></td>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999056&key=ofejcfaxcltk&from=gy">◆毛书也成敏感物 毛左教授携带被盘查遭讥讽</a><br/></td>
  </tr>
   <tr>
 <td align=left>
