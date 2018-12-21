@@ -17,7 +17,7 @@
  </tr>
   <tr>
 <td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c998806&key=ofejcfaxcltk&from=gy">◆杨宁：十个外国人获颁奖章 中共难掩落寞</a><br/></td>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999059&key=ofejcfaxcltk&from=gy">◆杨宁：十个外国人获颁奖章 中共难掩落寞</a><br/></td>
  </tr>
    <tr>
 <td align=left>
