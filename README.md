@@ -241,8 +241,8 @@
    </tr>
    <tr>
     <td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版(2018年09月）【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="https://share.weiyun.com/5y5lQcb">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
+ <a href="hhttps://share.weiyun.com/5mnUjPy">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
    <tr>
