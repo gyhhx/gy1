@@ -4,6 +4,101 @@
   </tr>
     <tr>
 <td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000491&key=ofejcfaxcltk&from=gy">◆内幕：中共在厄瓜多尔建大坝 带来了什么</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000526&key=ofejcfaxcltk&from=gy">◆分析：中石化旗下两高管被停职或有内幕</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000527&key=ofejcfaxcltk&from=gy">◆托不住的A股：沪指再失守2500点</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000522&key=ofejcfaxcltk&from=gy">◆三十载漫漫归家路 美国孤女逃离中共魔爪</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c816833_3_60&key=ofejcfaxcltk&from=gy">◆林辉：抗日名将殉国身后妻儿惨到乞讨</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000509&key=ofejcfaxcltk&from=gy">◆互联网裁员潮蔓延？传新浪6400人恐丢职位</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000450&key=ofejcfaxcltk&from=gy">◆美国专家：习近平作用惊人 中国之变可能早于人们想象</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000463&key=ofejcfaxcltk&from=gy">◆毛泽东冥诞不能明说 北京气氛诡异</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000398&key=ofejcfaxcltk&from=gy">◆党内分裂严重 习近平强化控制 55%民企倒闭 CEO培训班都移民了！</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c838308_577_1&key=ofejcfaxcltk&from=gy">◆新闻看点：美代表团1月初前往北京谈什麽？</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000472&key=ofejcfaxcltk&from=gy">◆中美贸易战最新消息虽来了！但明年战火将延烧到内地</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000422&key=ofejcfaxcltk&from=gy">◆周恩来死因之谜： 如果毛泽东这三条批示是真的</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000354&key=ofejcfaxcltk&from=gy">◆陈维健：吴敬琏最后忠谏速遭封杀 换掉习近平不是办法</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000423&key=ofejcfaxcltk&from=gy">◆从中共十大元帅临终言看中共惨烈内斗</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000484&key=ofejcfaxcltk&from=gy">◆传川普欲全面封杀华为、中兴 最快1月发布行政命令！</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000350&key=ofejcfaxcltk&from=gy">◆"崔永元怒怼最高法 爆粗口大骂周强知法犯法</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000467&key=ofejcfaxcltk&from=gy">◆男子喝酒叫滴滴代驾 抬头发现代驾身亡</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000476&key=ofejcfaxcltk&from=gy">◆【年终盘点】2018年大陆十大群体抗暴事件</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000487&key=ofejcfaxcltk&from=gy">◆美国贸易战新1轮协商名单曝光 未见最高层级官员</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000498&key=ofejcfaxcltk&from=gy">◆泰国医用大麻合法化 中国或悄悄成为“大麻生产强国”</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000558&key=ofejcfaxcltk&from=gy">◆闽汉挟持公交车冲击案 知情者再爆官逼民反真相</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000535&key=ofejcfaxcltk&from=gy">◆【兽医权威】非洲猪瘟 猪的艾滋病 感染100%死 大陆百年难除</a><br/></td>
+  </tr>
+    <tr>
+<td align=left>
 <a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000221&key=ofejcfaxcltk&from=gy">◆毛泽东冥诞 独中共军委发声 中南海无回应 川普一撤军 中俄推迟签署重要协议</a><br/>
 </td>
    </tr>
@@ -100,126 +195,6 @@
     <tr>
 <td align=left>
 <a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999929&key=ofejcfaxcltk&from=gy">◆陈破空：习近平进退失据 在党内进一步失宠</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000083&key=ofejcfaxcltk&from=gy">◆中共严控高校 又一市委书记空降高校任书记</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000082&key=ofejcfaxcltk&from=gy">◆中国汽车市场进入寒冬 外商失策陷痛苦抉择</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000037&key=ofejcfaxcltk&from=gy">◆中共公布“负面清单” 专家：开放程度有限</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000025&key=ofejcfaxcltk&from=gy">◆中共抵制圣诞节 人大教授带头反对</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000015&key=ofejcfaxcltk&from=gy">◆撑不住！中共大放水创新高 美国名专家给川普献绝招</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999951&key=ofejcfaxcltk&from=gy">◆分析：2019年中共的日子不好过</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999979&key=ofejcfaxcltk&from=gy">◆谷开来关押地对习不忠？中纪委查出问题</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999958&key=ofejcfaxcltk&from=gy">◆“头号警花”被周永康栽培成公共情妇</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999976&key=ofejcfaxcltk&from=gy">◆无现金化正成为中国一大弊端</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999941&key=ofejcfaxcltk&from=gy">◆吴惠林：有两个名人早已预言：“下一个震央就在中国”</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000072&key=ofejcfaxcltk&from=gy">◆中共首次将拘押加拿大公民与孟晚舟案相连</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000064&key=ofejcfaxcltk&from=gy">◆韩国瑜正式上任 中共党国旗帜现高雄</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000012&key=ofejcfaxcltk&from=gy">◆“一带一路”军事目的曝光 共军导弹可直攻美国 中共国安部长秘访日本这目的</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999775_3_1&key=ofejcfaxcltk&from=gy">◆纪录片：新疆转化营监狱式管理制度首度曝光</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000031&key=ofejcfaxcltk&from=gy">◆华为该紧张了！5G战局已变 新业者窜起竞争</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000053&key=ofejcfaxcltk&from=gy">◆平安夜 各地访民北京信访局门口大集访</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000081&key=ofejcfaxcltk&from=gy">◆“先救妻子还是妈妈” 海啸版真实演出</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000074&key=ofejcfaxcltk&from=gy">◆福建龙岩市持刀劫持公交车案导致5死20多人伤</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000007&key=ofejcfaxcltk&from=gy">◆大陆银行理财产品在线转让火爆 有何猫腻？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1000121&key=ofejcfaxcltk&from=gy">◆闷声发大财 刷屏文章： 百亿保健帝国权健 和它阴影下的中国家庭</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c838308_573_1&key=ofejcfaxcltk&from=gy">◆新闻看点：圣诞在中国多地被禁 中共怕什麽？</a><br/></td>
-  </tr>
-    <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999780&key=ofejcfaxcltk&from=gy">◆北京搞砸了！加拿大总动员联合世界各国 解决国际社会共同“中共问题”</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999818&key=ofejcfaxcltk&from=gy">◆企业集体倒闭 失业上升 中国经济风雨飘摇</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999823&key=ofejcfaxcltk&from=gy">◆16年别墅遭强拆 无赔偿 业主排人墙阻拆</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999731&key=ofejcfaxcltk&from=gy">◆杨宁：厉以宁获奖无表情 最新发言可解读</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999824&key=ofejcfaxcltk&from=gy">◆在横店“寻梦”的香港演员 靠副业养活自己</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999755&key=ofejcfaxcltk&from=gy">◆王友群：2018回顾中共 从全面腐败走向四分五裂</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c999777&key=ofejcfaxcltk&from=gy">◆习近平亲自出马效果不彰 川普重压下 中共真让步了？</a><br/>
 </td>
    </tr>
    <tr>
