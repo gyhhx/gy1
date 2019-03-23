@@ -146,7 +146,7 @@
     </tr>
    <tr>
     <td align=center>请尝试不同入口，进入动态网址<br/>
-      <a href="https://cors.io/?https://gitlab.com/ofile/up/raw/master/showi.htm#ogHome">入口</a><br/>
+      <a href="https://cors.io/?https://gitlab.com/ofile/up/raw/master/show.htm#ogHome">入口</a><br/>
       <a href="https://s3.us-east-2.amazonaws.com/ogateo/show.htm">入口</a>
       <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm">入口</a>
       <a href="https://s3.ap-southeast-2.amazonaws.com/ogatey/show.htm">入口</a><br/>
