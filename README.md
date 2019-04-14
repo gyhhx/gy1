@@ -199,8 +199,8 @@
    </tr>
   <tr>
     <td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="https://share.weiyun.com/5K7U2P5">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓〓<br/>
+ <b>〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
+ <a href="https://share.weiyun.com/5K7U2P5">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
     </td>
     </tr>
    <tr>
@@ -223,7 +223,7 @@
   <tr>  
   <td align=center>
   <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c894205&key=ofejcfaxcltk&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
-      <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=ogQuit.aspx&key=ofejcfaxcltk&from=gy"><b>◆◆◆◆◆◆◆◆◆三退保平安◆◆◆◆◆◆◆◆◆<br/></a>
+      <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=ogQuit.aspx&key=ofejcfaxcltk&from=gy"><b>◆◆◆◆三退保平安◆◆◆◆<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
