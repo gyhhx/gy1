@@ -127,6 +127,9 @@
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1034821&key=ofejcfaxcltk&from=gy">◆川普突然上调对华关税 中共宣传外交乱套？惊现“鬼打墙”</a><br/>
 </td>
    </tr>
+    <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+  </tr>
    <tr>
    <td align=center> 
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c816850&key=ofejcfaxcltk&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
