@@ -4,6 +4,102 @@
   </tr>
   <tr>
 <td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041487&key=ofejcfaxcltk&from=gy">◆组图1：六四烛光集会 18万港人逼爆维园</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041414&key=ofejcfaxcltk&from=gy">◆外媒频问六四 中共外交部文字实录全被删</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041456&key=ofejcfaxcltk&from=gy">◆美国国务院纪念六四视频（中文版）：天安门广场大屠杀30年后</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=http://www.soundofhope.org/gb/2019/06/04/n2933395.html&key=ofejcfaxcltk&from=gy">◆【现场直击】六四三十周年 港人再创历史 逾18万人维园点亮烛光
+</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041376&key=ofejcfaxcltk&from=gy">◆【六四30年】“八九民运”遭通缉的21名学生领袖今昔</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/04/a102593323.html&key=ofejcfaxcltk&from=gy">◆《寒冬》杂志:中共非法强摘活体器官暴行仍然猖獗</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/03/a102592663.html&key=ofejcfaxcltk&from=gy">◆高压仍难封锁 中国民众以独特方式纪念“六四”</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041537&key=ofejcfaxcltk&from=gy">◆《华邮》记者回忆六四:成都军人集体枪毙市民</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041425&key=ofejcfaxcltk&from=gy">◆六四各大官媒头条均是习近平和垃圾 美驻华使馆推文亮了</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041459&key=ofejcfaxcltk&from=gy">◆蓬佩奥促中共披露六四真相 世界领袖齐发声</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041449&key=ofejcfaxcltk&from=gy">◆能让央视网道歉的孙小果到底是谁？生父疑军方前将领 官方不置可否</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041549&key=ofejcfaxcltk&from=gy">◆被忽略的照片 六四“烧死士兵”真相</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041543&key=ofejcfaxcltk&from=gy">◆【新闻看点】世界高度聚焦六四 中共吓破胆？ </a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041437&key=ofejcfaxcltk&from=gy">◆六四内幕：邓小平为何动用十几个集团军 关键是怕一件事</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041531&key=ofejcfaxcltk&from=gy">◆美专家指习近平绝不会让“红卫兵”造反</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041401&key=ofejcfaxcltk&from=gy">◆北京一名公民致信全国人大 要求调查六四真相</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041388&key=ofejcfaxcltk&from=gy">◆六四30周年暨二二八72周年联合纪念活动</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041524&key=ofejcfaxcltk&from=gy">◆美驻华使馆发人权问责法 震慑中共人权恶棍</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041494&key=ofejcfaxcltk&from=gy">◆胞妹金与正神隐53天首露面 金正恩怒轰体操表演缺点多</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041513&key=ofejcfaxcltk&from=gy">◆六四30周年：世界大幅报道 中共鸦雀无声</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041520&key=ofejcfaxcltk&from=gy">◆天安门母亲集体祭奠六四遇难者</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041478&key=ofejcfaxcltk&from=gy">◆美驻华使馆网站刊登蓬佩奥六四事件声明</a><br/>
+</td>       
+  <tr>
+<td align=left>
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041173&key=ofejcfaxcltk&from=gy">◆六四前夕中共恐慌 全国多地做断网测试</a><br/>
 </td>
    </tr>
@@ -35,101 +131,6 @@
  <tr>
 <td align=left>
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/04/a102592811.html&key=ofejcfaxcltk&from=gy">◆六四抗命军长徐勤先司机逃美 揭38军凶狠杀人内幕</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/03/a102592526.html&key=ofejcfaxcltk&from=gy">◆曾亲手活摘未成年人器官 中国医院前实习生曝真相</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/03/a102592637.html&key=ofejcfaxcltk&from=gy">◆【直播预告】香港维园“六四”30周年烛光悼念集会</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=http://www.secretchina.com/news/gb/2019/06/03/895707.html&key=ofejcfaxcltk&from=gy">◆独家：30年前一位日本青年拍下的六四前照片(组图)</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041222&key=ofejcfaxcltk&from=gy">◆美国务卿发表六四30周年声明 向中国人民英雄致敬</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=https://www.secretchina.com/news/gb/2019/06/04/865192.html&key=ofejcfaxcltk&from=gy">◆军队女演员遭虐杀 惨不忍睹 六四枪响老干部退党(组图)</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041172&key=ofejcfaxcltk&from=gy">◆江绵恒白手套罕见落马 贸易战危机党政不同调 李克强王沪宁打起来了？</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041171&key=ofejcfaxcltk&from=gy">◆刘欣卸妆照惊悚老公长这样 国籍曝光实锤不是中国人 参访美国会记者证被取消 图集</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041152&key=ofejcfaxcltk&from=gy">◆章天亮： 美国公布并冻结中共贪官在美财产 贸易战美国大杀器 人权是否成为一部分</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041140&key=ofejcfaxcltk&from=gy">◆薄瓜瓜们大祸临头？美国国务院投下震憾弹</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041273&key=ofejcfaxcltk&from=gy">◆8964坦克碾人真相 极度恐怖20图 慎入</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041239&key=ofejcfaxcltk&from=gy">◆六四维稳措施空前严厉 手机已成中共重要控制工具</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041264&key=ofejcfaxcltk&from=gy">◆台湾纪念“六四屠杀” 副总统出席致辞</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041177&key=ofejcfaxcltk&from=gy">◆【六四30年】王沪宁被揭官运亨通与六四密不可分</a><br/>
-</td>
-   </tr>
-<tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041070&key=ofejcfaxcltk&from=gy">◆六四日记：邓小平十大罪行与恶行</a><br/>
-</td>       
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040998&key=ofejcfaxcltk&from=gy">◆盘点中共元老薄一波及其七子女现状</a><br/>
-</td>
-   </tr>
-<tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040971&key=ofejcfaxcltk&from=gy">◆刘欣回应国籍说法遭打脸 CGTN主编泄密</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041001&key=ofejcfaxcltk&from=gy">◆内斗加剧 财经社评“以人民利益为重”遭删</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040953&key=ofejcfaxcltk&from=gy">◆敬爱的“邓妈妈”在“六四”大屠杀中做了什么</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040962&key=ofejcfaxcltk&from=gy">◆谈判受挫怪美国？专家：中共白皮书倒打一耙</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041009&key=ofejcfaxcltk&from=gy">◆内幕：美中贸易战致中共高层裂痕扩大</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040718&key=ofejcfaxcltk&from=gy">◆中共“六四”机密文件新书出版 曝屠城背后的权力游戏</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1040955&key=ofejcfaxcltk&from=gy">◆怕出乱子？王沪宁兼忽悠新职 六常委齐齐站台</a><br/></td>
   </tr>
     <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
