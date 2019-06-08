@@ -2,9 +2,9 @@
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
-  <tr>
+ <tr>
 <td align=left>
-<a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1041999&key=ofejcfaxcltk&from=gy">◆王沪宁的诡计：红朝崛起的不归路 (上)</a><br/>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1042305&key=byrubgbzsydi&from=gy">◆习近平罕见公开说川普是朋友 释何信号</a><br/>
 </td>
    </tr>
 <tr>
