@@ -193,7 +193,7 @@
 <td align=left>
 <a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1042274&key=byrubgbzsydi&from=gy">◆川普再出招 将对中共操纵汇率开刀</a><br/>
 </td>   
-  /tr>
+  </tr>
   <tr>
 <td align=left>
 <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c1042094&key=ofejcfaxcltk&from=gy">◆中共特殊敏感年 自媒体最大规模封号潮来袭</a><br/></td>
