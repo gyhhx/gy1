@@ -4,6 +4,102 @@
   </tr>
   <tr>
 <td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043750&key=byrubgbzsydi&from=gy">◆为何对香港步步进逼 中共少将讲话透端倪</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.epochtimes.com/gb/19/6/13/n11320802.htm&key=byrubgbzsydi&from=gy">◆港警射击外国记者 围殴倒地女子视频曝光</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043630&key=byrubgbzsydi&from=gy">◆分析：拜登对中共转变态度的原因</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043752&key=byrubgbzsydi&from=gy">◆【新闻看点】百万港人获全球支持 林郑何从？</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043753&key=byrubgbzsydi&from=gy">◆南京市政协原主席自杀身亡 曾是罗志军大秘</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043696&key=byrubgbzsydi&from=gy">◆唐破阵：中共高层定性“反送中”是颜色革命？</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.soundofhope.org/gb/2019/06/13/n2956246.html&key=byrubgbzsydi&from=gy">◆网曝共军冒充港警镇压“反送中”民众 宛如“六四”再现</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/14/a102600504.html&key=byrubgbzsydi&from=gy">◆香港局势恶化 北京急推林郑当炮灰？</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/13/a102600255.html&key=byrubgbzsydi&from=gy">◆【今日点击】150枚催泪弹后 香港各界酝酿新一轮抗议</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043548&key=byrubgbzsydi&from=gy">◆香港民意冲击中南海 传高层现分歧 习忧失控 高官抵粤</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043645&key=byrubgbzsydi&from=gy">◆内部消息：习近平优柔寡断 不得了 江泽民有2大后台 王沪宁夺权成功 又推新计划</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043692&key=byrubgbzsydi&from=gy">◆香港反送中民意再胜 中共最怕的来了 外记也震怒！无惧港警威胁：开枪啊</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043689&key=byrubgbzsydi&from=gy">◆遭受中共蹂躏的中国文艺界精英们（1）</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043603&key=byrubgbzsydi&from=gy">◆风声鹤唳 北京房山区严查“四类人”</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043633&key=byrubgbzsydi&from=gy">◆章天亮：川普张开天网 习近平陷入囚徒困境（视频）</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043778&key=byrubgbzsydi&from=gy">◆美下最后通牒！库德洛：拒绝川习会 中共将面临可能的后果</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043776&key=byrubgbzsydi&from=gy">◆反送中全港罢课 港人蜂拥提美金5万都困难 红色权贵资本恐慌 港币如崩人民币一泻千里</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043688&key=byrubgbzsydi&from=gy">◆香港特首定性：这次是公然、有组织地发动暴动</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043685&key=byrubgbzsydi&from=gy">◆“不想这里变天安门广场” 港妈对峙港警影片疯传</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043687&key=byrubgbzsydi&from=gy">◆顾不上？美日军舰南海演习 中共未派军舰驱逐</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043741&key=byrubgbzsydi&from=gy">◆美两党两院议员推出法案 将香港自治状态与特殊待遇挂钩</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043746&key=byrubgbzsydi&from=gy">◆官媒批“戏精”盘点老虎落马前的两面言论</a><br/>
+</td>       
+</tr> 
+  <tr>
+<td align=left>
 <a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1043484&key=byrubgbzsydi&from=gy">◆【直击】6‧12血腥镇压后 数千港人无惧留守</a><br/>
 </td>
    </tr>
