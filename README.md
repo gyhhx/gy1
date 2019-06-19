@@ -4,6 +4,102 @@
   </tr>
   <tr>
 <td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044886&key=byrubgbzsydi&from=gy">◆川习G20会晤 美中官方通告大不同</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044950&key=byrubgbzsydi&from=gy">◆【新闻看点】G20川习会敲定 习访朝背后玄机</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044865&key=byrubgbzsydi&from=gy">◆川普与习近平通话 确定G20举行延长会议</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044851&key=byrubgbzsydi&from=gy">◆【新闻看点】林郑后退北京挫败 反送中刚开始</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044903&key=byrubgbzsydi&from=gy">◆分析：习近平为何误判香港民意</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044887&key=byrubgbzsydi&from=gy">◆习近平三大敏感背景下访朝 中朝各有盘算</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.epochtimes.com/gb/19/6/18/n11331411.htm&key=byrubgbzsydi&from=gy">◆特首回应挨批 港人发限时警告 抗争或升级</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044847&key=byrubgbzsydi&from=gy">◆【独立评论】“送终”指挥部痛悔 为什么不上城管？</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.soundofhope.org/gb/2019/06/17/n2966695.html&key=byrubgbzsydi&from=gy">◆伦敦“独立人民法庭”的终审判决将成为铁律</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/19/a102604140.html&key=byrubgbzsydi&from=gy">◆林郑道歉难平怒火 香港七一游行或掀高潮</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.secretchina.com/news/gb/2019/06/18/896852.html&key=byrubgbzsydi&from=gy">◆幕后黑手找到了！是他帮助毛泽东赤化中国(图)</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044843&key=byrubgbzsydi&from=gy">◆港人反弹 人肉高官子女国籍 抵制挺送中餐厅 林郑躲厕所狂哭 北京现惊人一幕</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044838&key=byrubgbzsydi&from=gy">◆曾庆红外侄女王晓玲前大秘被查</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044794&key=byrubgbzsydi&from=gy">◆中共“大外宣”竟然这样报导香港游行 网友：无耻无极限（视频）</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044928&key=byrubgbzsydi&from=gy">◆中国铁路总公司换“马甲” 5万亿债务谁担？</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044848&key=byrubgbzsydi&from=gy">◆惊！中共毁掉香港无异自宫 反送中 美国支持感动 英国驳斥中共 网络战在大陆展开</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044825&key=byrubgbzsydi&from=gy">◆大陆名教授与弟子翻脸 竟为了这事！</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044905&key=byrubgbzsydi&from=gy">◆中共侵蚀香港自由 越来越多港人移居台湾</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044931&key=byrubgbzsydi&from=gy">◆21名异议人士向联合国提申诉 要求调查六四镇压</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044927&key=byrubgbzsydi&from=gy">◆把华为当专利蟑螂 中共官媒攻击美参议员卢比奥是“泼皮”</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044805&key=byrubgbzsydi&from=gy">◆一日内中国两银行官员被爆出事 网友这样反应</a><br/>
+</td>
+   </tr>
+<tr>
+<td align=left>
+<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044833&key=byrubgbzsydi&from=gy">◆为5人“暴动”使用150枚催泪弹 港人被捕者可判10年</a><br/>
+</td>       
+</tr> 
+  <tr>
+<td align=left>
 <a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044679&key=byrubgbzsydi&from=gy">◆警民对峙中 “盾牌女孩”静坐照感动全球</a><br/>
 </td>
    </tr>
@@ -73,120 +169,6 @@
  <tr>
 <td align=left>
 <a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044667&key=byrubgbzsydi&from=gy">◆香港医院泄露身份资料给警方？议员要彻查</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044618&key=byrubgbzsydi&from=gy">◆四川宜宾发生6级地震 至少11死122伤</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044661&key=byrubgbzsydi&from=gy">◆对记者和人民动武 香港影帝讽港警长：当大家都会如来神掌？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044670&key=byrubgbzsydi&from=gy">◆四任特首和香港20多年的风风雨雨</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044705&key=byrubgbzsydi&from=gy">◆香港两次空前大示威 中共害怕什么？</a><br/>
-</td>
-   </tr>
-<tr>
-<td align=left>
-<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044637&key=byrubgbzsydi&from=gy">◆中国朝鲜边界发生地震 疑试爆所致</a><br/>
-</td>       
-</tr> 
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.epochtimes.com/gb/19/6/16/n11326702.htm&key=byrubgbzsydi&from=gy">◆近200万港人游行 外媒广泛报导 中共下令封杀</a><br/>
-</td>
-   </tr>
-<tr>
-<td align=left>
-<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044363&key=byrubgbzsydi&from=gy">◆组图5：香港入夜 抗议人潮仍挤爆街头</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=http://www.epochtimes.com/gb/19/6/16/n11326490.htm&key=byrubgbzsydi&from=gy">◆二百万人上街促林郑下台 不撤恶法不罢休</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044404&key=byrubgbzsydi&from=gy">◆中共信息出境法遭疑 专家：钳制民众的手段</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044399&key=byrubgbzsydi&from=gy">◆史无前例200万人反送中 你需了解5件事</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044417&key=byrubgbzsydi&from=gy">◆“不撤不退”英国五城同步声援香港大游行</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044462&key=byrubgbzsydi&from=gy">◆章天亮：两百万人走上街头 香港反“送中”游行对中国大陆的四点启示！</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=https://www.ntdtv.com/gb/2019/06/17/a102602466.html&key=byrubgbzsydi&from=gy">◆港府若拒5大诉求 “二百万+1”港人再上街</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044324&key=byrubgbzsydi&from=gy">◆诸葛高参：习老兄，再不回头，万事皆休！</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044357&key=byrubgbzsydi&from=gy">◆百万港人再怒吼反恶法 林郑月娥向市民致歉</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044334&key=byrubgbzsydi&from=gy">◆习近平66岁生日 两份“大礼”凉到心底</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044432&key=byrubgbzsydi&from=gy">◆青藏高原发出“哀鸣”！全世界都紧张起来。专家：这是人类的灾难！</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044386&key=byrubgbzsydi&from=gy">◆你没看错！中共下令：禁止从中西部及东北挖角人才</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044371&key=byrubgbzsydi&from=gy">◆文明香港震撼全球 救护车如「现代版摩西分红海」！</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044225&key=byrubgbzsydi&from=gy">◆习近平今六六顺寿 香港林郑暂缓修例送礼未知能否息上怒</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044382&key=byrubgbzsydi&from=gy">◆港府「太上皇」表态！中联办：暂缓不等于放弃 中央支持林郑</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044457&key=byrubgbzsydi&from=gy">◆文明香港撼全球 共警假冒当场被赶 川普峰会将与习近平谈香港 盾牌女孩成代表形象</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044407&key=byrubgbzsydi&from=gy">◆被夺走20年 见证一对中国人跨越生死的爱</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044355&key=byrubgbzsydi&from=gy">◆中美贸易战下 中共超高就业率是如何炮制？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044449&key=byrubgbzsydi&from=gy">◆周晓辉：《求是》定调 习近平G20或再错良机</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="http://cusbnbdtzcctk.global.ssl.fastly.net/oo.aspx?name=c1044460&key=byrubgbzsydi&from=gy">◆韩国瑜飙骂亲信半小时！黄光芹曝原因：疑心病狂</a><br/>
 </td>
    </tr>
     <tr>
