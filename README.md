@@ -99,8 +99,7 @@
 <a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046310&key=lvvdiyawanfwimxk&from=gy">◆「反送中」不仅冲击政府运作与威信 旅游及零售业也受牵连</a><br/>
 </td>       
 </tr> 
-
-    <tr>
+  <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
   </tr>
    <tr>
