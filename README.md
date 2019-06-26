@@ -11,7 +11,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="hhttps://xvery.pw/oo.aspx?name=c1046286&key=gnrthxbcuyjqgxij&from=gyy">◆美祭新禁令 重击中共超级计算机和CPU芯片业</a><br/></td>
+<a href="https://xvery.pw/oo.aspx?name=c1046286&key=gnrthxbcuyjqgxij&from=gyy">◆美祭新禁令 重击中共超级计算机和CPU芯片业</a><br/></td>
  </tr>
   <tr>
 <td align=left>
