@@ -91,24 +91,14 @@
 <td align=left>
 <a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c816857_597_1&key=lvvdiyawanfwimxk&from=gy">◆文昭谈古论今：台湾大规模反红色媒体集会！代言一国两制不能有言论自由？</a><br/>
 </td>
-   </tr>
-  <tr>
-<td align=left>
-<a href="https://x.co/ogate">◆直达通道1</a><br/>
-</td>
-   </tr>
-  <tr>
-<td align=left>
-<a href="https://x.co/odoor">◆直达通道2</a><br/>
-</td>
-   </tr>
+</tr> 
 <tr>
 <td align=left>
 <a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046310&key=lvvdiyawanfwimxk&from=gy">◆「反送中」不仅冲击政府运作与威信 旅游及零售业也受牵连</a><br/>
 </td>       
 </tr> 
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
   </tr>
    <tr>
    <td align=center> 
