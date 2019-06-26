@@ -7,7 +7,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046285&key=lvvdiyawanfwimxk&from=gy">◆【新闻看点】北京批美升级 美国重塑全球经济</a><br/>
+<a href="https://xvery.pw/oo.aspx?name=c1046512&key=gnrthxbcuyjqgxij&from=gy">◆【新闻看点】北京批美升级 美国重塑全球经济</a><br/>
 </td>
    </tr>
 <tr>
