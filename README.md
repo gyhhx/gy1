@@ -7,11 +7,11 @@
   </tr>
 <tr>
 <td align=left>
-<a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046253&key=lvvdiyawanfwimxk&from=gy">◆应美方要求 瑞典再次逮捕红通犯三号</a><br/></td>
+<a href="https://xvery.pw/oo.aspx?name=c1046253&key=gnrthxbcuyjqgxij&from=gy">◆应美方要求 瑞典再次逮捕红通犯三号</a><br/></td>
   </tr>
   <tr>
 <td align=left>
-<a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046286&key=lvvdiyawanfwimxk&from=gy">◆美祭新禁令 重击中共超级计算机和CPU芯片业</a><br/></td>
+<a href="hhttps://xvery.pw/oo.aspx?name=c1046286&key=gnrthxbcuyjqgxij&from=gyy">◆美祭新禁令 重击中共超级计算机和CPU芯片业</a><br/></td>
  </tr>
   <tr>
 <td align=left>
