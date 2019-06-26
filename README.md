@@ -5,11 +5,6 @@
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
   </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.pw/oo.aspx?name=c1046512&key=gnrthxbcuyjqgxij&from=gy">◆【新闻看点】北京批美升级 美国重塑全球经济</a><br/>
-</td>
-   </tr>
 <tr>
 <td align=left>
 <a href="https://d3h66516bh642.cloudfront.net/oo.aspx?name=c1046253&key=lvvdiyawanfwimxk&from=gy">◆应美方要求 瑞典再次逮捕红通犯三号</a><br/></td>
