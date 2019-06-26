@@ -3,7 +3,7 @@
 
 <table>
   <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
   </tr>
 <tr>
 <td align=left>
