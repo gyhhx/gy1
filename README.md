@@ -1,3 +1,5 @@
+♡♡♡ 微信中无法打开的地区，请将网址 https://git.io/gy 输入到浏览器中打开。 
+
 <table>
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/yaowen.jpg" /></td>
