@@ -11,7 +11,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1047585&key=lvvdiyawanfwimxk&from=gy">◆8名部级官员炒股 3人获利均超过亿元</a><br/></td>
+<a href="http://tinyurl.com/yxaqwjao">◆8名部级官员炒股 3人获利均超过亿元</a><br/></td>
  </tr>
   <tr>
 <td align=left>
