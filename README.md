@@ -49,7 +49,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049222&key=lvvdiyawanfwimxk&from=gy">◆这风向不得了：全国突掀学习毛主席著作高潮 两岸三地风雷激荡 中南海内外惊心</a><br/></td>
+<a href="http://tinyurl.com/y2rp9qze">◆这风向不得了：全国突掀学习毛主席著作高潮 两岸三地风雷激荡 中南海内外惊心</a><br/></td>
  </tr>
   <tr>
 <td align=left>
