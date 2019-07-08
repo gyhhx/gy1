@@ -217,7 +217,7 @@
   </tr>
   <tr>
 <td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049056&key=lvvdiyawanfwimxk&from=gy">◆【独立评论】一部未上映的电影《川习生死录》（下）</a><br/></td>
+<a href="http://t.cn/AiOpwLCr">◆【独立评论】一部未上映的电影《川习生死录》（下）</a><br/></td>
  </tr>
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
