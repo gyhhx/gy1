@@ -6,6 +6,97 @@
   </tr>
   <tr>
 <td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049809&key=lvvdiyawanfwimxk&from=gy">◆【新闻看点】三峡大坝变形？真正危机是什么</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049779&key=lvvdiyawanfwimxk&from=gy">◆港人“空投”简体字信息 打破中共防火墙</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049789&key=lvvdiyawanfwimxk&from=gy">◆香港九龙反送中游行“打倒共产党”声不断</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049868&key=lvvdiyawanfwimxk&from=gy">◆中共吹嘘收入增长 分析：走前苏联崩溃老路</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049744&key=lvvdiyawanfwimxk&from=gy">◆传大五毛“染香”被带走问话 出境时遭拒</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049787&key=lvvdiyawanfwimxk&from=gy">◆香港反送中新计划：全民到中国银行取钱</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049810&key=lvvdiyawanfwimxk&from=gy">◆【新闻看点】百万港人抗争 多少国人被中共欺瞒</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049781&key=lvvdiyawanfwimxk&from=gy">◆特稿：黑暗中的光芒 “709事件”4周年 抗争仍在持续</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049882&key=lvvdiyawanfwimxk&from=gy">◆章天亮：五毛党染香被限制出境 我为什么对五毛充满同情？（视频）</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=http://www.soundofhope.org/gb/2019/07/08/n3016273.html&key=lvvdiyawanfwimxk&from=gy">◆登联合国讲台为“反送中”发声 歌手何韵诗：应将中共从人权理事会除名</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049904&key=lvvdiyawanfwimxk&from=gy">◆深圳体育中心突倒塌 多人被埋 已知3死</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049913&key=lvvdiyawanfwimxk&from=gy">◆林郑：逃犯条例完全失败 寿终正寝！</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049752&key=lvvdiyawanfwimxk&from=gy">◆新疆汉人翻墙 冒死变声忠告：千万不要来新疆！1周不上来就进去了 如今...图集</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049907&key=lvvdiyawanfwimxk&from=gy">◆华裔女科学家被美清理门户 转投浙大被中共昭告天下</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049706&key=lvvdiyawanfwimxk&from=gy">◆打倒习近平 曾庆红为港独发声 大陆民众大骂中共「脑残」 港警慌了 英议员曝光他身份</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049709&key=lvvdiyawanfwimxk&from=gy">◆一张“不宜发表”的毛泽东旧照热传</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049824&key=lvvdiyawanfwimxk&from=gy">◆王岐山不点名批美 并称世界发展离不开中共</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049866&key=lvvdiyawanfwimxk&from=gy">◆领导三家上市公司的香港女商人被中共警方刑拘 原因不明</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049914&key=lvvdiyawanfwimxk&from=gy">◆毛情人自白：中共高层只有陈云林彪不玩女人 李志绥常帮毛的女人打胎</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049899&key=lvvdiyawanfwimxk&from=gy">◆刘福榕：习近平不知什么时候能把这个道理想明白</a><br/>
+</td>
+</tr> 
+<tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1049912&key=lvvdiyawanfwimxk&from=gy">◆俄军方潜艇出事成最高绝密 海底大战涉及到华为 与彭斯被召回有关？传美俄交火</a><br/>
+</td>       
+</tr> 
+  <tr>
+<td align=left>
 <a href="https://xvery.li/oo.aspx?name=http://www.epochtimes.com/gb/19/7/7/n11369986.htm&key=lvvdiyawanfwimxk&from=gy">◆中共承认三峡大坝移位变形 三峡景区发紧急通知</a><br/></td>
   </tr>
   <tr>
@@ -124,93 +215,6 @@
 <td align=left>
 <a href="https://xvery.li/oo.aspx?name=c1049276&key=lvvdiyawanfwimxk&from=gy">◆【直播预告】九龙反送中游行 向陆客传真相</a><br/></td>
   </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049198&key=lvvdiyawanfwimxk&from=gy">◆中共多次声称美国应取消关税 专家分析原因</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049335&key=lvvdiyawanfwimxk&from=gy">◆文昭："邻避效应“惹武汉万人上街；反抗者的捷径和港府的秋后算账！</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=http://www.secretchina.com/news/gb/2019/07/07/899460.html&key=lvvdiyawanfwimxk&from=gy">◆内幕：习近平上位再解谜 谁的政治保险？(图)</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="http://tinyurl.com/y2rp9qze">◆这风向不得了：全国突掀学习毛主席著作高潮 两岸三地风雷激荡 中南海内外惊心</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049243&key=lvvdiyawanfwimxk&from=gy">◆金言：谁是中南海内“鹰视狼顾”之人？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049214&key=lvvdiyawanfwimxk&from=gy">◆武汉人抗暴中共怕了上坦克？盾牌哥惊现!当局挨家恐吓祸延三代 大陆网民群起要香港真相</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049213&key=lvvdiyawanfwimxk&from=gy">◆英国外相谈香港：对BBC解释警告中国的“严重后果”是什么</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049124&key=lvvdiyawanfwimxk&from=gy">◆美媒：周永康也有这一天：漂亮儿媳遭警察非法骚扰</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049274&key=lvvdiyawanfwimxk&from=gy">◆黄天辰：续红黄蓝 贵州孤儿院登场 冰山一角？</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049282&key=lvvdiyawanfwimxk&from=gy">◆新证据：华为员工简历披露和中共关系密切</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049278&key=lvvdiyawanfwimxk&from=gy">◆北京通州区法院法官蒋为杰被举报</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049216&key=lvvdiyawanfwimxk&from=gy">◆猥亵女童案挑破脓包 中国人大政协为何藏污纳垢</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049323&key=lvvdiyawanfwimxk&from=gy">◆周日反修例游行九龙举行让内地客知悉 警方严阵戒备</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1049332&key=lvvdiyawanfwimxk&from=gy">◆中共威逼利诱禁阻无效 武汉民众坚持抗议</a><br/>
-</td>       
-</tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048981&key=lvvdiyawanfwimxk&from=gy">◆三峡大坝出现变形？水利专家揭示秘密</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048968&key=lvvdiyawanfwimxk&from=gy">◆王赫：“王岐山现象”在折射什么？</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048867&key=lvvdiyawanfwimxk&from=gy">◆港人怒火越过深圳河 大陆网民群起要真相</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048927&key=lvvdiyawanfwimxk&from=gy">◆章天亮：从美国国庆日谈中美贸易冲突的本质</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048807&key=lvvdiyawanfwimxk&from=gy">◆周晓辉：中共炒作的这个英国人有何背景</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1048976&key=lvvdiyawanfwimxk&from=gy">◆独家揭秘：中纪委秘密关押基地（视频）</a><br/>
-</td>
-   </tr>
  <tr>
 <td align=left>
 <a href="https://xvery.li/oo.aspx?name=http://www.soundofhope.org/gb/2019/07/05/n3011137.html&key=lvvdiyawanfwimxk&from=gy">◆武汉民众反对垃圾焚烧惊人进展 军队战车进城（视频）</a><br/></td>
