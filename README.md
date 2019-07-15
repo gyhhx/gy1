@@ -6,6 +6,97 @@
   </tr>
   <tr>
 <td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051707&key=lvvdiyawanfwimxk&from=gy">◆校园“七不讲”中共审查让年轻人思想窒息</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=http://www.epochtimes.com/gb/19/7/14/n11384637.htm&key=lvvdiyawanfwimxk&from=gy">◆范冰冰被指翻墙上IG 冯小刚避而不谈范</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051532&key=lvvdiyawanfwimxk&from=gy">◆揭秘：中共前高官掌管美最大退休基金</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=http://www.epochtimes.com/gb/19/7/14/n11383492.htm&key=lvvdiyawanfwimxk&from=gy">◆秦光荣湖南丑闻曝光 私改中共人事安排</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051676&key=lvvdiyawanfwimxk&from=gy">◆钟山上场 分析：打破中共高层权力平衡</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051718&key=lvvdiyawanfwimxk&from=gy">◆杭州被租客带走的9岁女童死亡案 谜团待解</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c816702_7_577&key=lvvdiyawanfwimxk&from=gy">◆风雨20载 法轮功海外筑起真相长城（上）</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=https://www.ntdtv.com/gb/2019/07/14/a102622319.html&key=lvvdiyawanfwimxk&from=gy">◆香港两日三场游行 警方暴力升级屡溅血</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=https://www.ntdtv.com/gb/2019/07/14/a102621912.html&key=lvvdiyawanfwimxk&from=gy">◆游泳世锦赛敏感时刻 孙杨砸碎血样内幕曝光</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051740&key=lvvdiyawanfwimxk&from=gy">◆港人直播黑警惊人一幕看哭网友 “革命月饼”热卖 北京胆寒 遍地开花接力大游行</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051724&key=lvvdiyawanfwimxk&from=gy">◆华春莹失踪多月用了外媒一把 忽露面扬言解决中共挨骂问题 怎奈网友不买账 嘲讽一片</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051738&key=lvvdiyawanfwimxk&from=gy">◆《FT》：林郑曾多次提出请辞 惟北京拒绝接受 要求她清理烂摊子</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051723&key=lvvdiyawanfwimxk&from=gy">◆中美贸易战走向对抗 无视川普 中共加深特色模式 30家500强中企巨亏1771亿元</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051763&key=lvvdiyawanfwimxk&from=gy">◆戈壁东：分赃冲突中的后极权中共向何处去？</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051650&key=lvvdiyawanfwimxk&from=gy">◆新疆的终极危险 冲突也许将骤然降临！</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051736&key=lvvdiyawanfwimxk&from=gy">◆中共有些将领出事 传常万全等人遭降级</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051682&key=lvvdiyawanfwimxk&from=gy">◆内幕：江绵恒和周正毅秘谈录音带“被消失”了</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051762&key=lvvdiyawanfwimxk&from=gy">◆张林：中共发动7/11暴力袭击（1）</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c1051748&key=lvvdiyawanfwimxk&from=gy">◆中国规模3万亿美元的信托融资市场现受压迹象</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c816857_607_1&key=lvvdiyawanfwimxk&from=gy">◆中共逮捕四名英国人、制裁美国对台军售企业！人质外交与北戴河阴影</a><br/>
+</td>
+</tr> 
+<tr>
+<td align=left>
+<a href="https://xvery.li/oo.aspx?name=c816850_49_5&key=lvvdiyawanfwimxk&from=gy">◆《石涛聚焦》新闻界黑衣沉默游行纪实</a><br/>
+</td>       
+</tr> 
+  <tr>
+<td align=left>
 <a href="https://xvery.li/oo.aspx?name=c1051474&key=lvvdiyawanfwimxk&from=gy">◆章天亮：常万全出事 军头拥兵为何无人造反</a><br/></td>
   </tr>
   <tr>
@@ -111,144 +202,6 @@
 <td align=left>
 <a href="https://xvery.li/oo.aspx?name=c1051153&key=lvvdiyawanfwimxk&from=gy">◆【直播预告】反送中 香港7.14沙田游行</a><br/></td>
    </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051194&key=lvvdiyawanfwimxk&from=gy">◆谁的面子工程 三峡工程兴建决策始末</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051026&key=lvvdiyawanfwimxk&from=gy">◆港媒：习对韩正及两大涉港部门极不满</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051196&key=lvvdiyawanfwimxk&from=gy">◆李锐文稿及书籍被抄走 李南央忧被中共销毁</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050832&key=lvvdiyawanfwimxk&from=gy">◆港媒：中共前国防部长常万全被降职 问题非常严重</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051142&key=lvvdiyawanfwimxk&from=gy">◆“失踪”数月后 位列“中国人渣榜”的华春莹有新消息</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051242&key=lvvdiyawanfwimxk&from=gy">◆于溟：“709”律师的伟大人性光辉是中国人权最黑暗时期的一座灯塔</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051047&key=lvvdiyawanfwimxk&from=gy">◆北戴河会议前夕中南海危机四伏 习近平狠批四种官（视频）</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051236&key=lvvdiyawanfwimxk&from=gy">◆3百港大学生集会游行 迫校长张翔深夜对话</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051067&key=lvvdiyawanfwimxk&from=gy">◆香港事件震动中南海 传两大部门惹怒习近平</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051069&key=lvvdiyawanfwimxk&from=gy">◆加税？川普斥北京不守诺 中南海激战 习近平失势？ 他是一个风向标 被削权？</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051239&key=lvvdiyawanfwimxk&from=gy">◆川普:中方通过货币贬值和补贴 冲抵关税影响</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051155&key=lvvdiyawanfwimxk&from=gy">◆中共发布紧急级别海上安全警告引发疑虑</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051148&key=lvvdiyawanfwimxk&from=gy">◆纽约华人欢迎蔡英文 对骚扰人士喊共产党滚</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051246&key=lvvdiyawanfwimxk&from=gy">◆北戴河会议将讨论香港反送中及美中经贸</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051170&key=lvvdiyawanfwimxk&from=gy">◆白宫贸易顾问纳瓦罗批WSJ、人民日报 制造贸易战「垃圾报导」</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051220&key=lvvdiyawanfwimxk&from=gy">◆朝鲜修宪：金正恩正式成为代表国家的国家元首</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1051249&key=lvvdiyawanfwimxk&from=gy">◆反修例重燃年轻人政治热诚 年底区选料建制派优势不再</a><br/>
-</td>       
-</tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050782&key=lvvdiyawanfwimxk&from=gy">◆传中共前国防部长常万全问题严重被降级</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050887&key=lvvdiyawanfwimxk&from=gy">◆【新闻看点】专家：北京误判川普 恐砸自己脚</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050812&key=lvvdiyawanfwimxk&from=gy">◆郭文贵爆江志成发国难财 砸700亿拉港股？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050909&key=lvvdiyawanfwimxk&from=gy">◆刘鹤与美方代表通话 中共商务部长罕见参加</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050827&key=lvvdiyawanfwimxk&from=gy">◆养老金消耗殆尽 中共划拨国有资本填窟窿</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050852&key=lvvdiyawanfwimxk&from=gy">◆【新闻看点】三大困境 习近平谈六变斥昏官</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050905&key=lvvdiyawanfwimxk&from=gy">◆“三峡大坝扭曲变形”引发担忧 专家解析</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050832&key=lvvdiyawanfwimxk&from=gy">◆港媒：中共前国防部长常万全被降职 问题非常严重</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050916&key=lvvdiyawanfwimxk&from=gy">◆耿和向中共喊话：你若不需要高智晟 让他回家 我们需要他</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=https://www.ntdtv.com/gb/2019/07/11/a102620322.html&key=lvvdiyawanfwimxk&from=gy">◆张玉婧涉重大国安调查 检方提交特殊秘密证据</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=https://www.ntdtv.com/gb/2019/07/11/a102620325.html&key=lvvdiyawanfwimxk&from=gy">◆北戴河有新情况？河北高官罕见全勤维稳</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050811&key=lvvdiyawanfwimxk&from=gy">◆微信如何从内部渗透西方政治（上）</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050912&key=lvvdiyawanfwimxk&from=gy">◆金正恩在悼父大会上犯困 金与正疑升至核心层</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=https://www.ntdtv.com/gb/2019/07/11/a102620061.html&key=lvvdiyawanfwimxk&from=gy">◆胡耀邦秘书回忆录：上中共大当 走向炼狱</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://xvery.li/oo.aspx?name=c1050834&key=lvvdiyawanfwimxk&from=gy">◆布什总统一家为何恨川普到咬牙切齿 六四解密档案送来答案</a><br/>
-</td>
-  </tr>
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/title1.jpg" /></td>
   </tr>
