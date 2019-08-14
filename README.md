@@ -90,12 +90,6 @@
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1062835&key=iulvfagzrxnrcwra&from=gy">◆章天亮：川普转推中共军车进入香港的视频。香港极可能戒严并取消11月区议会选举！</a><br/>
 </td>
 </tr> 
-<tr>
-<td align=left>
-<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1005513&key=iulvfagzrxnrcwra&from=gy">◆欺世伪火</a><br/>
-</td>       
-</tr> 
-
   <tr>
 <td align=left>
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1062301&key=iulvfagzrxnrcwra&from=gy">◆中共担心撑不到明年 郭文贵爆北戴河内幕</a><br/></td>
