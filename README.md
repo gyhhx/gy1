@@ -4,6 +4,10 @@
   <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
   </tr>
+   <tr>
+<td align=left>
+<a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c922850_364_1&key=iulvfagzrxnrcwra&from=gy">◆香港加油 8.18特別轉推：香港反送中關鍵時刻，是歷史重演，還是歷史拐點？全球正義力量共同發聲</a><br/></td>
+  </tr>
   <tr>
 <td align=left>
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1064141&key=iulvfagzrxnrcwra&from=gy">◆【直播】8.17反送中两大游行 教师+光复红土</a><br/></td>
