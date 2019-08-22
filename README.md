@@ -1,8 +1,8 @@
 ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy （或 http://t.cn/AipnotmH ）输入到浏览器中打开。 
 
 <table>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
+   <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20190822-2.jpg" /></td>
   </tr>
   <tr>
 <td align=left>
@@ -146,8 +146,8 @@
 <td align=left>
 <a href="https://z7e5m3p3.stackpathcdn.com/oo.aspx?name=c1065175&key=iulvfagzrxnrcwra&from=gy">◆《石涛聚焦》戏说：推背图43像 诠释香港反送中 逆权 反黑警 善果而终</a><br/></td>
  </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/20190822-2.jpg" /></td>
+   <tr>
+    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
   </tr>
    <tr>
    <td align=center> 
