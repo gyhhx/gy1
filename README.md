@@ -198,9 +198,6 @@
       ■■■微信中请先点击右上角“...” 或 “三”　选择“在浏览器中打开”■■■<b><br/>
     </td>
   </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3.jpg" /> </td>
-</tr>
   <tr>  
   <td align=center>
   <a href="http://ctbtfdoocixoa.global.ssl.fastly.net/oo.aspx?name=c894205&key=ofejcfaxcltk&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
