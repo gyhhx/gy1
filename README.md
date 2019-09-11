@@ -6,6 +6,96 @@
   </tr>
    <tr>
 <td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072645&key=tvurxxlgoqbampcg&from=gy">◆港府已偷偷执行紧急法？某VPN香港受阻</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://cn.epochtimes.com/gb/19/9/10/n11512671.htm&key=tvurxxlgoqbampcg&from=gy">◆港足迎战伊朗队 球迷嘘声淹没中共国歌</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072684&key=tvurxxlgoqbampcg&from=gy">◆人权组织拟向美英多国提请制裁央视记者董倩</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072485&key=tvurxxlgoqbampcg&from=gy">◆全球最大开源社区曝中共封锁大纪元信息</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072622&key=tvurxxlgoqbampcg&from=gy">◆分析：中共怕猪肉短缺 胜过贸易战香港问题</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072716&key=tvurxxlgoqbampcg&from=gy">◆大陆多地宗教造像整容 “观音”变“嫦娥”</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072454&key=tvurxxlgoqbampcg&from=gy">◆美媒：北京处理香港问题无章法 习近平面临风险</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/09/09/n3169482.html&key=tvurxxlgoqbampcg&from=gy">◆江峰漫谈：《香港人权与民主法案》制衡中共武器升级，谁毁香港，我灭谁</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c816702_6_1&key=tvurxxlgoqbampcg&from=gy">◆法轮功将向美移民局提供在美恶人名单</a><br/></td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c816833_3_362&key=tvurxxlgoqbampcg&from=gy">◆毛泽东死43年还能显灵？网络笑话五花八门</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072540&key=tvurxxlgoqbampcg&from=gy">◆中共用微波技术“脑控” 亲历者揭密（上）</a><br/></td>
+ </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072662&key=tvurxxlgoqbampcg&from=gy">◆【热点互动】神秘录音流出 直指中共统治危机</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072672&key=tvurxxlgoqbampcg&from=gy">◆【今日热点】外国势力乱港？港警回答 北京尴尬</a><br/></td>
+   </tr> 
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072714&key=tvurxxlgoqbampcg&from=gy">◆【禁闻】中共已到70年大限 上中下层都出问题</a><br/></td>
+  </tr> 
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072668&key=tvurxxlgoqbampcg&from=gy">◆习心腹大患！中国经济或遭毁灭性重击 美专家：只要川普切断...</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072715&key=tvurxxlgoqbampcg&from=gy">◆桓宇：香港死亡列车继之被自杀 中共测试西方底线</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072649&key=tvurxxlgoqbampcg&from=gy">◆马云被退休？放弃了肉体留下了灵魂？阿里巴巴的央企太子党背景显赫</a><br/></td>
+  </tr>
+  <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072702&key=tvurxxlgoqbampcg&from=gy">◆林郑月娥：绝不认同美国国会介入香港内政</a><br/></td>
+ </tr>
+   <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072658&key=tvurxxlgoqbampcg&from=gy">◆《石涛聚焦》美国会复会 香港人权法通过在即 冻结港官财产 拒绝入境 终止“香港特殊关系法”都有可能</a><br/>
+</td>
+   </tr>
+ <tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072641&key=tvurxxlgoqbampcg&from=gy">◆为什么香港反送中示威中没出现“良心警察”变节?</a><br/>
+</td>
+</tr> 
+<tr>
+<td align=left>
+<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072679&key=tvurxxlgoqbampcg&from=gy">◆教师节来临 大陆高校教师被禁言软禁频发</a><br/>
+</td>       
+</tr> 
+   <tr>
+<td align=left>
 <a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072285&key=tvurxxlgoqbampcg&from=gy">◆10月重启会谈 美方透露中方电话内容</a><br/></td>
   </tr>
   <tr>
@@ -28,108 +118,6 @@
 <td align=left>
 <a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072350&key=tvurxxlgoqbampcg&from=gy">◆川普对付中共和里根解体苏联 策略惊人相似</a><br/>
 </td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/09/09/n3168102.html&key=tvurxxlgoqbampcg&from=gy">◆李嘉诚首开腔 吁执政者对年轻人网开一面（视频）</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072191&key=tvurxxlgoqbampcg&from=gy">◆多伦多影展巩俐被问香港问题 即刻摆黑脸</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c816702_6_2&key=tvurxxlgoqbampcg&from=gy">◆澳洲天国乐团参加悉尼庆典活动（图）</a><br/></td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072319&key=tvurxxlgoqbampcg&from=gy">◆陆媒痛批晚清奸臣连仕三朝 疑影射王沪宁遭速删</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://cn.secretchina.com/news/gb/2019/09/10/906774.html&key=tvurxxlgoqbampcg&from=gy">◆“近平”叫不停 太子党争拍合照 现场大乱(图)</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072385&key=tvurxxlgoqbampcg&from=gy">◆江苏女足教练猥亵小球员被举报 信息遭封杀</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072210&key=tvurxxlgoqbampcg&from=gy">◆习权力保卫战变成反习总号角？北京长安街上演惊人一幕 新政策将中国经济推向大崩盘？</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072373&key=tvurxxlgoqbampcg&from=gy">◆人权组织将提请制裁央视记者董倩</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072343&key=tvurxxlgoqbampcg&from=gy">◆陈破空：习主席痛失老朋友 央视主持：今天你爱国了吗？港生牵手护自由</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072339&key=tvurxxlgoqbampcg&from=gy">◆反送中》向执政者喊话 李嘉诚：对未来的主人翁网开一面</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072366&key=tvurxxlgoqbampcg&from=gy">◆纽时:北京对港政策混乱 习近平拖延待变或更不利</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072352&key=tvurxxlgoqbampcg&from=gy">◆【新闻看点】十一将至 中共神经紧绷在防谁？</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072391&key=tvurxxlgoqbampcg&from=gy">◆《石涛.News》李嘉诚再发声：吁执政者对年轻人－未来主人翁 网开一面</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072361&key=tvurxxlgoqbampcg&from=gy">◆叶德娴撑反送中 吁美国帮香港 郭富城驾跑车现身</a><br/>
-</td>
-</tr> 
-<tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072399&key=tvurxxlgoqbampcg&from=gy">◆十多个大陆人涉香港示威被捕有人罚唱“没有共产党没有新中国”</a><br/>
-</td>       
-</tr> 
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1072096&key=tvurxxlgoqbampcg&from=gy">◆数万港人美领馆集会 警察堵路多个地铁站遭殃</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071987&key=tvurxxlgoqbampcg&from=gy">◆中共欲夺联合国要职 白宫网站网民联署力阻</a><br/></td>
- </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071786&key=tvurxxlgoqbampcg&from=gy">◆海峡两岸 养猪业的鲜明对比</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://cn.ntdtv.com/gb/2019/09/08/a102660640.html&key=tvurxxlgoqbampcg&from=gy">◆港府无理控制黄之锋阻其访德 抓捕借口超奇葩</a><br/></td>
-   </tr> 
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071991&key=tvurxxlgoqbampcg&from=gy">◆中共建安哥拉机场15年未完工 恐成烂尾工程</a><br/></td>
-  </tr> 
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071692&key=tvurxxlgoqbampcg&from=gy">◆山东环保“大跃进” 企业关门数万人下岗</a><br/>
-</td>
-   </tr>
- <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071777&key=tvurxxlgoqbampcg&from=gy">◆猪引发政治危机？官媒开始宣传“猪肉还是少吃为好”</a><br/></td>
-  </tr>
-  <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=http://www.soundofhope.org/gb/2019/09/08/n3166668.html&key=tvurxxlgoqbampcg&from=gy">◆中国A股惊曝监狱风云 12大佬被抓 800亿市值蒸发</a><br/></td>
- </tr>
-   <tr>
-<td align=left>
-<a href="https://g9v8t8z4.stackpathcdn.com/oo.aspx?name=c1071832&key=tvurxxlgoqbampcg&from=gy">◆中国数十款APP恶意使用窃取个人隐私 “数据监狱”已成型</a><br/></td>
    </tr>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
