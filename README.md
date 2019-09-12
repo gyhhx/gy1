@@ -204,11 +204,6 @@
 <td align=left>
 <a href="https://tru28th.xwood.fun/oo.aspx?name=c1072203&key=nqynnipsxfbxcbni&from=gy">◆程晓容：香港人权民主法案对中共意味着什么</a><br/></td>
   </tr> 
- <tr>
-<td align=left>
-<a href="https://url.cn/5edMs7C">◆川普对付中共和里根解体苏联 策略惊人相似</a><br/>
-</td>
-   </tr>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
   </tr>
