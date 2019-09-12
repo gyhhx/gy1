@@ -209,9 +209,6 @@
 <a href="https://tru28th.xwood.fun/oo.aspx?name=c1072350&key=nqynnipsxfbxcbni&from=gy">◆川普对付中共和里根解体苏联 策略惊人相似</a><br/>
 </td>
    </tr>
-  <tr>
-    <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/shipin.jpg" /></td>
-  </tr>
    <tr>
     <td align=center><img src="https://github.com/gyhhx/image-upload/blob/master/ogate-c.JPG" /></td>
   </tr>
