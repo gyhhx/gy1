@@ -118,9 +118,6 @@
     <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.apk">Firefox安卓版</a></td>
     <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.zip">Firefox电脑版</a></td>
   </tr>
-  <tr>
-    <td colspan="2" align="center"><img src="https://gitlab.com/ogate2/up/raw/master/_/oGate640.jpg"/></td>
-  </tr>
 
 </table>
 
