@@ -67,32 +67,32 @@
   </tr>
    <tr>
    <td align=center> 
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816850&key=nqynnipsxfbxcbni&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
   <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816860&key=nqynnipsxfbxcbni&from=gy&tag=99733110">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816860&key=eqxowaguscvmxdgc&from=gy&tag=99733110">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816855&key=nqynnipsxfbxcbni&from=gy&tag=997110">◆纵论天下◆透析最新热点之陈破空</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816855&key=eqxowaguscvmxdgc&from=gy&tag=997110">◆纵论天下◆透析最新热点之陈破空</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c838308&key=nqynnipsxfbxcbni&from=gy&tag=9973110">◆新闻看点◆著名时政分析之李沐阳</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c838308&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆新闻看点◆著名时政分析之李沐阳</a><br/>
    </tr>
    <tr>
      <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816852&key=nqynnipsxfbxcbni&from=gy&tag=9733110">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816852&key=eqxowaguscvmxdgc&from=gy&tag=9733110">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816694&key=nqynnipsxfbxcbni&from=gy&tag=93310">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816694&key=eqxowaguscvmxdgc&from=gy&tag=93310">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td align=center>
-<a href="https://tru28th.xwood.fun/oo.aspx?name=c816650&key=nqynnipsxfbxcbni&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://xball.casa/oo.aspx?name=c816650&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
   <tr>
     <td align=center>
@@ -116,11 +116,13 @@
   </tr>
   <tr>  
   <td align=center>
-  <a href="https://tru28th.xwood.fun/oo.aspx?name=c894205&key=nqynnipsxfbxcbni&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
-      <a href="https://tru28th.xwood.fun/oo.aspx?name=ogQuit.aspx&key=nqynnipsxfbxcbni&from=gy"><b>◆◆◆◆三退保平安◆◆◆◆<br/></a>
+  <a href="https://xball.casa/oo.aspx?name=c894205&key=eqxowaguscvmxdgc&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
+      <a href="https://xball.casa/oo.aspx?name=ogQuit.aspx&key=eqxowaguscvmxdgc&from=gy"><b>◆◆◆◆三退保平安◆◆◆◆<br/></a>
       <img src="https://github.com/gyhhx/image-upload/blob/master/3t.jpg" /><br/>
       </td>
   </tr>
 </table>
+
+
 
 
