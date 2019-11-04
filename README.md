@@ -67,6 +67,11 @@
   </tr>
    <tr>
    <td align=center> 
+<a href="https://xball.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy&tag=9877">◆江峰時刻◆講述歷史真相生命冷暖</a><br/>
+    </td>
+  </tr>
+   <tr>
+   <td align=center> 
 <a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
