@@ -76,26 +76,7 @@
     <td align=center>
 <a href="https://xball.casa/oo.aspx?name=c816650&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-  <tr>
-    <td align=center>
- <b>〓〓〓〓〓〓〓〓〓〓〓<br/>网门 安卓版【新版】<br/> ●长期访问<br/> ●一键翻墙<br/>  ●不限时长<br/> 
- <a href="https://share.weiyun.com/55r7kXH">👉<b>点我下载</a><br/>〓〓〓〓〓〓〓〓〓〓〓<br/>
-    </td>  
-    </tr>
-   <tr>
-    <td align=center>请尝试不同入口，进入动态网址<br/>
-      <a href="https://s3.us-east-2.amazonaws.com/ogateo/show.htm">入口</a>
-      <a href="https://s3.ca-central-1.amazonaws.com/ogatec/show.htm">入口</a>
-      <a href="https://s3.ap-southeast-2.amazonaws.com/ogatey/show.htm">入口</a><br/>
-      <a href="https://s3.ap-northeast-2.amazonaws.com/ogates/show.htm">入口</a>
-      <a href="https://s3.eu-central-1.amazonaws.com/ogatef/show.htm">入口</a>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/show.htm">入口</a><br/>
-      <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm">入口</a>
-      <a href="https://s3.eu-west-2.amazonaws.com/ogatel/show.htm">入口</a>
-      <a href="https://s3.ap-northeast-1.amazonaws.com/ogatet/show.htm">入口</a><br/>
-      ■■■微信中请先点击右上角“...” 或 “三”　选择“在浏览器中打开”■■■<b><br/>
-    </td>
-  </tr>
+ 
   <tr>  
   <td align=center>
   <a href="https://xball.casa/oo.aspx?name=c894205&key=eqxowaguscvmxdgc&from=gy&tag=9973110">三退大潮 亿万人的觉醒之旅</a><br/>
@@ -105,6 +86,43 @@
   </tr>
 </table>
 
+<table>
+  <tr>
+    <td colspan="2" align="center">网门<br/>免翻墙，一键浏览全球精粹资源<br/>头条，影视，声音，图书，直播<br/>安全，稳定，高速，及时，便利<br/>本页面是固定网址页面，请收藏</td>
+  <tr>
+  <tr>
+    <td colspan="2" align="center">请尝试不同入口，进入动态网址<br/>微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
+  <tr>
+  <tr>
+    <td align="center"><a href="https://gl.githack.com/ofile/up/raw/master/showm.htm">网页版入口一</a></td>
+    <td align="center"><a href="https://lijcxlvzmlxs.xroot.pw/oo.aspx?key=mvmsehdxxcbsukzw&from=gy">网页版入口二</a></td>
+  </tr>
+  <tr>
+    <td colspan="2" align="center">下载网门客户端，更快，更方便</td>
+  <tr>
+  <tr>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oGatea.apk">网门安卓版</a></td>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oGate.zip">网门电脑版</a></td>
+  </tr>
+  <tr>
+    <td colspan="2" align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oPipe.zip">环通电脑版</a></td>
+  </tr>
+  <tr>
+    <td colspan="2" align="center">使用海外浏览器，更好，更安全</td>
+  <tr>
+  <tr>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Chrome.apk">Chrome安卓版</a></td>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Chrome.zip">Chrome电脑版</a></td>
+  </tr>
+  <tr>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.apk">Firefox安卓版</a></td>
+    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.zip">Firefox电脑版</a></td>
+  </tr>
+  <tr>
+    <td colspan="2" align="center"><img src="https://gitlab.com/ogate2/up/raw/master/_/oGate640.jpg"/></td>
+  </tr>
+
+</table>
 
 
 
