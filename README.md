@@ -53,7 +53,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092493&key=eqxowaguscvmxdgc&from=gy">中国频爆债务违约 或成明年最大“黑天鹅”</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092490&key=eqxowaguscvmxdgc&from=gy">填词人梁柏坚买六合彩 冀特殊号码中奖助手足</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092397&key=eqxowaguscvmxdgc&from=gy">张林：中共残酷驯化中国人的结果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="http://tinyurl.com/y3ojww25">文睿：“湾湾，回家吧”引愤怒 央视女主播进一步拉低了中国的形象</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://url.cn/5qdfRPk">文睿：“湾湾，回家吧”引愤怒 央视女主播进一步拉低了中国的形象</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
