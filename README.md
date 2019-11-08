@@ -43,7 +43,6 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092483&key=eqxowaguscvmxdgc&from=gy">台湾大选 北京是民进党最佳助选员？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1091924&key=eqxowaguscvmxdgc&from=gy">见证中共历次危机 揭密京西宾馆发生的大事</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092147&key=eqxowaguscvmxdgc&from=gy">文睿：“湾湾，回家吧”引愤怒 央视女主播进一步拉低了中国的形象</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://url.cn/5elIVrr">魏京生：中共四中全会之后果</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
