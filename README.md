@@ -48,8 +48,8 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092775&key=eqxowaguscvmxdgc&from=gy">放风协议消息大逆转白宫发话 美智库策略脱钩:第1轮协议不重要 中共宣布开放是作秀？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092827&key=eqxowaguscvmxdgc&from=gy">传阿里巴巴拟11月底在香港上市</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092478&key=eqxowaguscvmxdgc&from=gy">刘大圣：富豪榜是杀猪榜 王健林王思聪能够活着离开中国吗？！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092850&key=eqxowaguscvmxdgc&from=gy">重庆薄王“遗毒”官员 被指发矿难财兴冤狱</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092780&key=eqxowaguscvmxdgc&from=gy">陈思敏：中共称美取消加征关税背后的钱荒危机</a></td></tr>
+<tr><td colspan="2" align="left"><a href="http://985.so/dXKD">重庆薄王“遗毒”官员 被指发矿难财兴冤狱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://bit.ly/2NTeXmD">陈思敏：中共称美取消加征关税背后的钱荒危机</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://is.gd/FwztH3">美媒：香港势必爆发另一场更大抗争</a></td></tr>
 
  <tr>
