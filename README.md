@@ -50,7 +50,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092478&key=eqxowaguscvmxdgc&from=gy">刘大圣：富豪榜是杀猪榜 王健林王思聪能够活着离开中国吗？！</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092850&key=eqxowaguscvmxdgc&from=gy">重庆薄王“遗毒”官员 被指发矿难财兴冤狱</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092780&key=eqxowaguscvmxdgc&from=gy">陈思敏：中共称美取消加征关税背后的钱荒危机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1092612&key=eqxowaguscvmxdgc&from=gy">美媒：香港势必爆发另一场更大抗争</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/FwztH3">美媒：香港势必爆发另一场更大抗争</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
