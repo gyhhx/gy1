@@ -47,7 +47,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1095131&key=eqxowaguscvmxdgc&from=gy">北京访民申请游行后被限制自由</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1095205&key=eqxowaguscvmxdgc&from=gy">金砖峰会巴西举行 习近平等五国首脑出席</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1095365&key=eqxowaguscvmxdgc&from=gy">悉尼政治圆桌论坛关注中共对世界危害</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1095196&key=eqxowaguscvmxdgc&from=gy">台大宣布收容香港学籍学生 名额不设限</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xbest.casa">台大宣布收容香港学籍学生 名额不设限</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
