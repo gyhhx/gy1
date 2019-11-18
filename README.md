@@ -106,8 +106,8 @@
     <td colspan="2" align="center">请尝试不同入口，进入动态网址<br/>微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
   <tr>
   <tr>
-    <td align="center"><a href="https://gl.githack.com/ofile/up/raw/master/showm.htm">网页版入口一</a></td>
-    <td align="center"><a href="https://lijcxlvzmlxs.xroot.pw/oo.aspx?key=mvmsehdxxcbsukzw&from=gy">网页版入口二</a></td>
+    <td align="center"><a href="https://xblue.casa/oo.aspx?key=sgbqkopuejmcoyak&from=gy">网页版入口一</a></td>
+    <td align="center"><a href="https://xblue.casa/oo.aspx?key=sgbqkopuejmcoyak&from=gy">网页版入口二</a></td>
   </tr>
   <tr>
     <td colspan="2" align="center">下载网门客户端，更快，更方便</td>
