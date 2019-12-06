@@ -1,4 +1,4 @@
-ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy 输入到浏览器中打开。 
+ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy 或 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
 
  <table>
 
