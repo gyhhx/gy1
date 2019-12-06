@@ -1,4 +1,4 @@
-ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy 或 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
+ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy 或 https://github.com/gyhhx/gy1 输入到浏览器中打开。 
 
  <table>
 
@@ -91,36 +91,21 @@
     <td colspan="2" align=center>
 <a href="https://xball.casa/oo.aspx?name=c816650&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-
-  <tr>
+<tr>
     <td colspan="2" align="center">网门<br/>免翻墙，一键浏览全球精粹资源<br/>头条，影视，声音，图书，直播<br/>安全，稳定，高速，及时，便利<br/>本页面是固定网址页面，请收藏</td>
   <tr>
   <tr>
     <td colspan="2" align="center">请尝试不同入口，进入动态网址<br/>微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
   <tr>
-   <tr>
-    <td colspan="2" align="center"><a href="https://cdn.statically.io/gh/otiny/up/master/show.htm">网页版入口</a></td>
+  <tr>
+    <td colspan="2" align="center"><a href="https://cdn.statically.io/gh/otiny/up/master/show001.htm">网页版入口</a></td>
   </tr>
   <tr>
     <td colspan="2" align="center">下载网门客户端，更快，更方便</td>
   <tr>
   <tr>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oGatea.apk">网门安卓版</a></td>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oGate.zip">网门电脑版</a></td>
-  </tr>
-  <tr>
-    <td colspan="2" align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/oPipe.zip">环通电脑版</a></td>
-  </tr>
-  <tr>
-    <td colspan="2" align="center">使用海外浏览器，更好，更安全</td>
-  <tr>
-  <tr>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Chrome.apk">Chrome安卓版</a></td>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Chrome.zip">Chrome电脑版</a></td>
-  </tr>
-  <tr>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.apk">Firefox安卓版</a></td>
-    <td align="center"><a href="https://gitlab.com/ogate2/up/raw/master/_/Firefox.zip">Firefox电脑版</a></td>
+    <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oGatea.apk">网门安卓版</a></td>
+    <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oGate.zip">网门电脑版</a></td>
   </tr>
 
 </table>
