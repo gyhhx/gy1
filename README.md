@@ -48,7 +48,9 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1103919&key=eqxowaguscvmxdgc&from=gy">房企集体破产 中国债务风暴来袭</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1103981&key=eqxowaguscvmxdgc&from=gy">立法会谈《香港人权与民主法案》对港影响 胡志伟批政府是动乱根源</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1103922&key=eqxowaguscvmxdgc&from=gy">美涉疆法案打得更痛？路透社指法案威胁中共监控产业</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1103905&key=eqxowaguscvmxdgc&from=gy">库德洛：协议若无执行保证 川普会“走开”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://url.cn/5pHDGzc">南昌初一学生校服收费2300元 家长难接受</a></td></tr>
+
+ 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
   </tr>
