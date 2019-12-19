@@ -9,6 +9,8 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108536&key=eqxowaguscvmxdgc&from=gy">复旦改章程招来骂声一片 学生合唱校歌抗议（视频）</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108506&key=eqxowaguscvmxdgc&from=gy">张林：毛泽东靠什么为所欲为？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108533&key=eqxowaguscvmxdgc&from=gy">五毛花千芳曝中共经济衰败 母亲养老证遭收缴</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：NBA风波刚过 英超球星厄齐尔挑战中共 台湾网红力撑蔡英文</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：北京盛传：薄熙来死了？查办他的那个人忽然被捕，曾是习近平的刀</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108517&key=eqxowaguscvmxdgc&from=gy">中港足球大战 港球迷趁机表达反修例诉求 展示“中国不等如中共”的标语</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108476&key=eqxowaguscvmxdgc&from=gy">台陆委会发言人：习近平集权将陷入新毛泽东陷阱</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1108566&key=eqxowaguscvmxdgc&from=gy">头发真白了！习近平抵澳门 港媒外媒被拒入境</a></td></tr>
