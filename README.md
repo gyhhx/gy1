@@ -43,7 +43,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109848&key=eqxowaguscvmxdgc&from=gy">独家经销商爆料：中国「酒鬼酒」偷加「甜蜜素」</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109857&key=eqxowaguscvmxdgc&from=gy">长沙在建地铁附近地面塌陷 附近大面积停电</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109845&key=eqxowaguscvmxdgc&from=gy">2019年不好过！马云：曾1天内接到5通借钱电话 近1周10个朋友要卖楼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1109847&key=eqxowaguscvmxdgc&from=gy">北京加强监控！澳门网安法生效</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://url.cn/5yCcPNg">北京加强监控！澳门网安法生效</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
