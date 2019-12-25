@@ -59,7 +59,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110555&key=eqxowaguscvmxdgc&from=gy">湖南烟花厂爆炸 地方两度瞒报死亡数字 民众指有前科</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110556&key=eqxowaguscvmxdgc&from=gy">台湾贿选以招待旅游赌博方式进行 民进党设24小时举报热线</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110560&key=eqxowaguscvmxdgc&from=gy">美国安顾问警告 英允许华为参与5G有风险</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110559&key=eqxowaguscvmxdgc&from=gy">澳门开始实施网络安全法 实名制落地</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/YzGE4o">澳门开始实施网络安全法 实名制落地</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
