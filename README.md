@@ -47,7 +47,7 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110843&key=eqxowaguscvmxdgc&from=gy">伊朗、俄罗斯、中共将首次举行四天联合海军演习</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110800&key=eqxowaguscvmxdgc&from=gy">中共发文严防规模性失业抗争 预示失业潮？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110830&key=eqxowaguscvmxdgc&from=gy">中国app失去控制权 印度人重新主导本地市场</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1110804&key=eqxowaguscvmxdgc&from=gy">廖祖笙：匪党说的和匪党做的</a></td></tr>
+<tr><td colspan="2" align="left"><a href="http://mvptm87658.5719.host">廖祖笙：匪党说的和匪党做的</a></td></tr>
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
   </tr>
