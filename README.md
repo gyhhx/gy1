@@ -97,9 +97,10 @@
   <tr>
   <tr>
     <td colspan="2" align="center">请尝试不同入口，进入动态网址<br/>微信如提示停止访问该网页，须<br/>先点击右上角，选择浏览器打开</td>
+  <tr>  
   <tr>
-  <tr>
-    <td colspan="2" align="center"><a href="https://cdn.statically.io/gh/otiny/up/master/show001.htm">网页版入口</a></td>
+    <td align="center"><a href="https://gitcdn.xyz/repo/otiny/up/master/show002.htm">网页精简版</a></td>
+    <td align="center"><a href="https://gitcdn.xyz/repo/otiny/up/master/show001.htm">网页完整版</a></td>
   </tr>
   <tr>
     <td colspan="2" align="center">下载网门客户端，更快，更方便</td>
