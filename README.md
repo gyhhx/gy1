@@ -24,6 +24,10 @@
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111884&key=eqxowaguscvmxdgc&from=gy">中共两省军区政委突然被免全国人大代表资格</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111880&key=eqxowaguscvmxdgc&from=gy">张林：青少年被迫加入抗美援朝志愿军</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111891&key=eqxowaguscvmxdgc&from=gy">奇特相逢 被收养到美国的中国两姊妹</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：「圣诞节：习近平被赋予［中共之神］至尊牌位」政治局生活会24名委员跪拜其脚下「自我检讨 反省」以免灭顶 赞美之词似讣告「‘人民领袖’ 百年圣人」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：党内怀念胡主席，习近平坐不住了！开会准备整人？圣诞冷毛诞热，幕后大有名堂</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1025998&key=eqxowaguscvmxdgc&from=gy">章天亮-天亮时分：统战李子柒和重新编译修改《圣经》,背后的同一个逻辑是什么?</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy">江峰时刻：川普的太空战该怎么打？汶川大地震中温家宝痛骂军人的真相，不用GPS改用北斗定位的内幕</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111904&key=eqxowaguscvmxdgc&from=gy">【新闻看点】危机来了？官称过紧日子及防暴动</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111908&key=eqxowaguscvmxdgc&from=gy">经济动力无以为继 北京房价由高位下跌近两成</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1111895&key=eqxowaguscvmxdgc&from=gy">从原昆明市中级法院杨晓萍面临国际制裁说起</a></td></tr>
