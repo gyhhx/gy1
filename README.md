@@ -7,10 +7,8 @@
  </tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124304&key=eqxowaguscvmxdgc&from=gy">陈破空：武汉人怒揭官宣造假 王沪宁封杀王岐山！世卫宣布紧急状态 世界为中共独裁付出代价</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124299&key=eqxowaguscvmxdgc&from=gy">洪微：习近平“纠正”武汉市长 透露了什么</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124298&key=eqxowaguscvmxdgc&from=gy">夏小强：中共失控 中国各地出现自组织状态征兆</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124390&key=eqxowaguscvmxdgc&from=gy">【禁闻】1月31日疫情爆料</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124393&key=eqxowaguscvmxdgc&from=gy">【禁闻】武汉肺炎是人祸？ 中共执政无能 民间乱方寸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1124395&key=eqxowaguscvmxdgc&from=gy">夏小强：中共失控 中国各地出现自组织状态征兆</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy">石涛：澳门夫妇意大利搭邮轮发烧被隔离 逾6千游客禁上岸</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c816932&key=eqxowaguscvmxdgc&from=gy">陈破空：王沪宁急了，大胆篡改习近平原话！国难当头，国人继续愚昧？上海主任医生一炮而红</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1025998&key=eqxowaguscvmxdgc&from=gy">章天亮-天亮时分：武汉肺炎，世界卫生组织宣布全球紧急事件；武警部队染病毒;大瘟疫下的良知拷问;社会大动荡下,如何获得心灵的抚慰和安宁</a></td></tr>
