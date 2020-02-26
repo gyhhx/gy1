@@ -5,7 +5,6 @@
   <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/20190822-2.jpg"></td>
  </tr>
-<tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1135649&key=eqxowaguscvmxdgc&from=gy">财经冷眼：今天，中共此举激怒美国 美痛下决心切割 醒悟程度超贸易战！</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1135638&key=eqxowaguscvmxdgc&from=gy">【独家】山东内部文件：确诊数是公布的数倍</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1135642&key=eqxowaguscvmxdgc&from=gy">前央视主持人对内开砲：中国要向世界鞠躬道歉！</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xball.casa/oo.aspx?name=c1135743&key=eqxowaguscvmxdgc&from=gy">中共外交部新发言人上任 被曝推特关注前AV女优</a></td></tr>
