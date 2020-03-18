@@ -1,9 +1,30 @@
-ↀↀ 微信中无法打开的地区，请将本站网址 https://git.io/gy 或 https://github.com/gyhhx/gy1 输入到浏览器中打开。 
-
  <table>
-
+<tr>
+<td colspan="2" align=left>
+♡微信中无法打开的地区，请将本站网址https://git.io/gytui 或 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
+ </td>
+</tr>
+ <tr>
+ <td colspan="2" align=left>
+♡敬请及时收藏本站以免失连
   <tr>
-    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/20190822-2.jpg"></td>
+<td colspan="2" align=left>
+♡了解真实资讯保障生命财产安全。
+ </td>
+   <tr>
+<td colspan="2" align=left>
+♡全球头条，大陆直连，敬请传播给大陆亲友网友。
+ </td>
+</tr>
+
+</td>
+ </tr>
+  <tr>
+    <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t%20(1).jpg"></td>
+ </tr>
+ <tr><td colspan="2" align="center"><a href="https://xfine.casa/oo.aspx?name=ogQuit&key=exgxucyqmkwgvwch&from=gy">◆◆◆点我→→三退保平安←←点我◆◆◆</a></td></tr>
+  <tr>
+    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/oo.aspx?name=c1144850&key=exgxucyqmkwgvwch&from=gy">任志强好友向外媒求助 传北京回应：要案不准插手</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/oo.aspx?name=c1144862&key=exgxucyqmkwgvwch&from=gy">神秘女子驾车冲击东华门所谓何事？</a></td></tr>
@@ -58,45 +79,48 @@
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/oo.aspx?name=c1144768&key=exgxucyqmkwgvwch&from=gy">「中国版LV」大掉漆 山东如意科技爆发债务违约</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/oo.aspx?name=c1144852&key=exgxucyqmkwgvwch&from=gy">三百万海外加拿大人急着回来 也有不少华人想回中港台避疫情</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/oo.aspx?name=c1144783&key=exgxucyqmkwgvwch&from=gy">类武汉肺炎患者 切勿自行服用消炎药</a></td></tr>
-
+ 
  <tr>
-   <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
+   <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
   </tr>
    <tr>
    <td colspan="2" align=center> 
-<a href="https://xfine.casa/oo.aspx?name=c922850&key=eqxowaguscvmxdgc&from=gy&tag=9877">◆江峰時刻◆講述歷史真相生命冷暖</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c922850&key=exgxucyqmkwgvwch&from=gy&tag=9877">◆江峰時刻◆講述歷史真相生命冷暖</a><br/>
     </td>
   </tr>
    <tr>
    <td colspan="2" align=center> 
-<a href="https://xfine.casa/oo.aspx?name=c816850&key=eqxowaguscvmxdgc&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816850&key=exgxucyqmkwgvwch&from=gy&tag=9877">◆今日点击◆全球华语最热脱口秀</a><br/>
     </td>
   </tr>
   <tr>
   <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c816860&key=eqxowaguscvmxdgc&from=gy&tag=99733110">◆中国禁闻◆报道中国最深度内幕</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816860&key=exgxucyqmkwgvwch&from=gy&tag=99733110">◆中国禁闻◆报道中国最深度内幕</a><br/>
    </tr>
   <tr>
      <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c816855&key=eqxowaguscvmxdgc&from=gy&tag=997110">◆纵论天下◆透析最新热点之陈破空</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816855&key=exgxucyqmkwgvwch&from=gy&tag=997110">◆纵论天下◆透析最新热点之陈破空</a><br/>
    </tr>
    <tr>
       <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c838308&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆新闻看点◆著名时政分析之李沐阳</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c838308&key=exgxucyqmkwgvwch&from=gy&tag=9973110">◆新闻看点◆著名时政分析之李沐阳</a><br/>
    </tr>
    <tr>
      <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c816852&key=eqxowaguscvmxdgc&from=gy&tag=9733110">◆热点互动◆把握时事热点的脉动</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816852&key=exgxucyqmkwgvwch&from=gy&tag=9733110">◆热点互动◆把握时事热点的脉动</a><br/>
    </tr>
    <tr>
       <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c816694&key=eqxowaguscvmxdgc&from=gy&tag=93310">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816694&key=exgxucyqmkwgvwch&from=gy&tag=93310">◆雷人网事◆讽刺幽默的诙谐小品</a><br/>
    </tr>
    <tr>
     <td colspan="2" align=center>
-<a href="https://xfine.casa/oo.aspx?name=c816650&key=eqxowaguscvmxdgc&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
+<a href="https://xfine.casa/oo.aspx?name=c816650&key=exgxucyqmkwgvwch&from=gy&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-<tr>
+ <tr>
+    <td colspan="2" align="center"><img src="https://gitlab.com/ogate2/up/raw/master/_/oGate65.jpg"/></td>
+  </tr>
+  <tr>
     <td colspan="2" align="center">网门<br/>免翻墙，一键浏览全球精粹资源<br/>头条，影视，声音，图书，直播<br/>安全，稳定，高速，及时，便利<br/>本页面是固定网址页面，请收藏</td>
   <tr>
   <tr>
@@ -113,5 +137,4 @@
     <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oGatea.apk">网门安卓版</a></td>
     <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oGate.zip">网门电脑版</a></td>
   </tr>
-
 </table>
