@@ -1,4 +1,5 @@
  <table>
+ 
 <tr>
 <td colspan="2" align=left>
 ♡微信中无法打开的地区，请将本站网址https://git.io/gytui 或 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
@@ -13,9 +14,6 @@
 ♡全球头条，大陆直连，敬请传播给大陆亲友网友。
  </td>
 </tr>
-
-</td>
- </tr>
   <tr>
     <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t%20(1).jpg"></td>
  </tr>
