@@ -14,9 +14,7 @@
 ♡全球头条，大陆直连，敬请传播给大陆亲友网友。
  </td>
 </tr>
-  <tr>
-    <td colspan="2" align=center><img src="https://github.com/gyhhx/image-upload/blob/master/3t%20(1).jpg"></td>
- </tr>
+ 
  <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
