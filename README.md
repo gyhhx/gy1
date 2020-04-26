@@ -2,7 +2,7 @@
  
 <tr>
 <td colspan="2" align=left>
-♡微信中无法打开的地区，请将本站网址https://git.io/gy 或 https://github.com/gyhhx/gy2 输入到浏览器中打开。 
+♡微信中无法打开的地区，请将本站网址https://git.io/gy 或 https://github.com/gyhhx/gy1 输入到浏览器中打开。 
  </td>
 </tr>
  <tr>
