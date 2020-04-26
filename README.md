@@ -18,8 +18,6 @@
  <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
  </tr>
-
-<tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1162436&key=exgxucyqmkwgvwch&from=gy">陈破空：陕西行 习近平说话漏底 政敌就在那里</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1162443&key=exgxucyqmkwgvwch&from=gy">朝鲜官媒闹乌龙 俄使馆给金正恩“送花圈”</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1162446&key=exgxucyqmkwgvwch&from=gy">清竹：金正恩出现的症状在告诉人们什么？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xfine.casa/?name=c1162465&key=exgxucyqmkwgvwch&from=gy">班农:武汉P4实验室专家外逃 或公开爆料</a></td></tr>
