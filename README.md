@@ -77,7 +77,7 @@
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1163406&key=wdcctzyyncblgvet&from=gy">陈破空：新成立特务机构特勤局 看死所有党国领导人 除了习近平</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1163440&key=wdcctzyyncblgvet&from=gy">受任负责武汉P4实验室安全问题的他 何许人也？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1163283&key=wdcctzyyncblgvet&from=gy">韩国官员告诫不要轻信金正恩重病的报道</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1163223&key=wdcctzyyncblgvet&from=gy">中共病毒在这个大家族里失去传染力</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ipsite.org/3se1x">中共病毒在这个大家族里失去传染力</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
