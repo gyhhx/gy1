@@ -68,7 +68,7 @@
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1164698&key=wdcctzyyncblgvet&from=gy">世界黄金协会：中国首季饰金需求暴挫64%</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1164695&key=wdcctzyyncblgvet&from=gy">中行应对「原油宝」事件疑採拖延策略 六万苦主赔偿遥遥无期</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1164754&key=wdcctzyyncblgvet&from=gy">逾百名公民发起联署 望促成黄琦母子相聚</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://img.xsurf.surf/?name=c1164692&key=wdcctzyyncblgvet&from=gy">大陆4月制造业PMI下滑 新订单12年最低</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/pjpELy">大陆4月制造业PMI下滑 新订单12年最低</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
