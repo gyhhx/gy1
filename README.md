@@ -9,7 +9,7 @@
     <td colspan="2" align="center"><a href="https://gitcdn.xyz/cdn/otiny/up/master/show005.htm">网页精简版</a><br/>进入后可以点击底部：动态网址</td>
   </tr>
   <tr>
-    <td align="center"><a href="https://github.com/gyhhx/gynew/blob/master/README.md">今日头条</a></td>
+    <td colspan="2" align="center"><a href="https://github.com/gyhhx/gynew/blob/master/README.md">今日头条</a><br/></td>
   </tr>
   <tr>
     <td colspan="2" align="center">下载多种客户端，更快，更方便</td>
