@@ -20,9 +20,10 @@
     <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oPipe.zip">环通电脑版</a></td>
   </tr>
   <tr>
-    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate640.jpg"/></td>
-  </tr>
-  <tr>
     <td align="center"><a href="https://github.com/gyhhx/gynew/blob/master/README.md">今日头条</a></td>
   </tr>
+  <tr>
+    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate640.jpg"/></td>
+  </tr>
+  
 </table>
