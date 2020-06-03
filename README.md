@@ -26,9 +26,6 @@
 ♡全球头条，大陆直连，敬请传播给大陆亲友网友。
  </td>
 </tr>
- <tr>
-    <td colspan="2" align="center"><a href="https://github.com/pwgy/pw/blob/master/README.md">全球新闻直通车</a><br/></td>
-  </tr>
 
 </table>
 
